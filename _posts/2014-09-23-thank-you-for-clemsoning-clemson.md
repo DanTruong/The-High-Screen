@@ -1,0 +1,70 @@
+---
+layout: post
+categories: the-buckets-blog
+author: "Cole Frederick"
+title: "Thank You for Clemsoning, Clemson"
+date: "2014-09-23"
+---
+
+I can’t explain it. It’s a phenomenon college football fans have been trying to explain for years. Some try to ignore its existence, or insist, “It could happen to anyone.” It can’t, though. Clemsoning, at its core, is a wretched, unassailable disease that Dabo Swinney and the Clemson Tigers can never cure.
+
+Clemsoning was at its peak on Saturday night in Tallahassee. The Tigers faced a Florida State team that was missing its Heisman trophy-winning quarterback, and they had the perfect opportunity to knock off the Seminoles and take control of the Atlantic division of the ACC. Sean Maguire threw for over 300 yards and a touchdown in [Jameis Winston’s absence](http://espn.go.com/college-football/story/_/id/11570226/suspension-hit-home-florida-state-seminoles-qb-jameis-winston), but the Clemson defense had Maguire and the rest of the Seminole offense baffled throughout most of the game. The ‘Noles were 4-15 on third down, lost the turnover battle, and finished the game with only 13 rushing yards.
+
+Somehow, despite amassing 100 total yards of offense more than the Seminoles during regulation, the Tigers found themselves trapped in a college football OT session — where truly anything can happen. Florida State stuffed Clemson on fourth-and-one on the first possession of overtime, and then proceeded to score and end the game in two plays once they got the ball.
+
+It was Clemsoning to the fullest, and this version of Clemsoning saved the College Football Playoff Selection Committee at least one major headache. Had Florida State lost without Winston, they still likely would’ve finished the season 12-1. Then the committee would’ve had a difficult time deciding on how to view the Seminoles. Could they have left out a 12-1 Florida State in favor of a 11-1 Baylor? Or a one loss SEC team that didn’t win the SEC title? The committee is in charge of picking the four best teams, but we still have no idea how they’re going to do so.
+
+Luckily for the committee, Clemsoning happened, and the ‘Noles somehow gutted out a victory without its best player on the field. It’s a testament to how talented Florida State is, and we should expect Florida State to be involved in the inaugural four-team playoff.
+
+\[caption id="attachment\_813" align="alignnone" width="300"\][![It has been a long time since the Bulldogs have had anything to play for in the SEC. Could 2014 finally be Mississippi State's year? (Photo taken by Brian Norwood.)](images/Mississippi-State.Football-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Mississippi-State.Football.jpg) It has been a long time since the Bulldogs have had anything to play for in the SEC. Could 2014 finally be Mississippi State's year? (Photo taken by Brian Norwood.)\[/caption\]
+
+So, Mississippi State might be for real. Or maybe it’s finally the season where LSU regresses and people in Baton Rouge start to question Les Miles. Either way, what the Bulldogs did Saturday night in Baton Rouge was a milestone victory for Dan Mullen.
+
+http://www.youtube.com/watch?v=R7ACnauffKI
+
+Mullen’s been trying to pick up that signature win for years, and his patience finally paid off. The Bulldogs hadn't beaten the Tigers since 2000, going 0-14 against LSU over that stretch, and 0-26 against Top 10 teams. But on Saturday, Dak Prescott was fantastic — his 56-yard scramble in the 3rd quarter was a triumph — and the Bulldogs made LSU’s defense look terrible. The Tigers rarely lose night games in Death Valley under Les Miles but Mississippi State dominated LSU in every facet of the game. We’ll find out soon enough whether this was a fluke win for the Bulldogs. They have a bye next week, but after that they host Texas A&M and Auburn back-to-back.
+
+The second most impressive win of the weekend belonged to the Oklahoma Sooners. I’ve said before that this version of the Sooners [might be the best that Bob Stoops has had in Norman](http://www.thehighscreen.com/2014/09/college-football-week-three-preview/), and right now they are the best team in college football. The Sooners beat West Virginia, 45-33, despite an average game from quarterback Trevor Knight. Knight threw for 205 yards and an interception, but it was the Sooners’ rushing attack that dominated Saturday night in Morgantown. Samaje Perine rushed for 242 yards and four touchdowns, but more importantly, he proved that Oklahoma has a balanced attack. The Sooners averaged 6.5 yards per carry, and they controlled the tempo of the game in the second half.
+
+West Virginia scored 33 points on Oklahoma, although six of those points came via a garbage time touchdown. The Sooners forced three turnovers, and they only allowed 137 yards on the ground. Winning a road game at night in a place like Morgantown is never easy, and Oklahoma dominated in the second half. If the playoffs started next week, I’d take Oklahoma over anyone.
+
+\[caption id="attachment\_814" align="alignnone" width="300"\][![The Crimson Tide have something special this year... on offense. (Photo taken by Joel יוֹאֵל.)](images/Alabama.Bryant-DennyStadium-300x110.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Alabama.Bryant-DennyStadium.jpg) The Crimson Tide have something special this year... on offense. (Photo taken by Joel יוֹאֵל.)\[/caption\]
+
+A Heisman trophy candidate emerged in Tuscaloosa last Saturday, as Amari Cooper caught 10 passes for 201 yards and three touchdowns in a 42-21 victory over Florida. Cooper outgained Florida by himself. For most of the game, Cooper went up against Vernon Hargreaves, one of the best corners in college football. Hargreaves did about as well against Cooper as any one defender could, but Cooper was simply catching balls over and around him.
+
+When Lane Kiffin was at USC, the best receiver on his team put up big numbers every year. During Kiffin’s last two seasons at Southern Cal, Marqise Lee and Robert Woods took advantage of Kiffin’s offense the same way Cooper will this year:
+
+2011 – Robert Woods: 111 catches, 1,292 yards, 15 touchdowns 2012 – Marqise Lee: 118 catches, 1,721 yards, 14 touchdowns
+
+Check out Cooper’s numbers last season in 11 games versus his production under Kiffin already in 2014 in only four games:
+
+2013: 45 catches, 736 yards, four touchdowns 2014: 43 catches, 655 yards, five touchdowns
+
+If Cooper’s numbers end up looking like Lee’s in 2012, and Alabama is in the mix for a playoff spot, expect Cooper to receive an invite to New York City for the Heisman ceremony.
+
+Perhaps Cooper’s most impressive feat was making quarterback Blake Sims look like an All-American. Sims threw for 445 yards, which is the second most in school history. Lane Kiffin called a beautiful game, and he allowed Sims to complete throws to mostly wide-open receivers.
+
+The Alabama defense shut down Jeff Driskel and the Gator offense, as Driskel only threw for 98 yards on 28 attempts. Landon Collins was excellent throughout the game. Collins is the best player on the Alabama defense, and he might be the only reason Bama’s secondary functions on a game-by-game basis. The presence of freshman Tony Brown also helped tremendously in the secondary, but that unit still needs work if they’re going to be perform at a championship level.
+
+The Crimson Tide’s running game didn’t get going until late, but Derrick Henry is nearly unstoppable in open space. The biggest cause for concern is the offensive line, which looked questionable throughout most of the day in the running game. It’s usually not a good sign when teams have to overload one side of the line in short yardage situations. Alabama’s best offensive lineman is a true freshman, Cam Robinson, and they run behind him when they desperately need yards on the ground.
+
+This Alabama team is very good, but turning the ball over four times against a good team will get them beat. Not enough can be said about Kiffin’s offense. This might be the best offense in Alabama history, and we might see the Crimson Tide involved in a lot of shootouts this season. And as long as Amari Cooper is healthy, he’ll be on the shortlist of Heisman hopefuls.
+
+Extra Points
+
+• I’ll excuse Auburn and Oregon’s mediocre performances on the road just this once. It was the first road game for each team, and in Auburn’s case, the Tigers played a ranked Kansas State team on a Thursday night. The Tigers probably should have lost; Nick Marshall made enough plays down the stretch to avoid the upset. The Auburn defense was impressive, holding Kansas State to only 40 rushing yards. As for Oregon, well, the Ducks were playing Washington State, and it’s probably not easy to get psyched up for a game against the Cougars. Still, allowing superstar QB Marcus Mariota to be sacked seven times is harsh. Both the Tigers and the Ducks should be fine.
+
+• What an embarrassing loss for Missouri. The Tigers should expect a letter from SEC commissioner Mike Slive notifying them that they’re being sent back to the Big 12.
+
+• If East Carolina was in the ACC, they could probably win the Coastal division. The Pirates annihilated North Carolina, 70-41, a week after knocking off Virginia Tech in Blacksburg.
+
+• In related news, South Carolina’s win over East Carolina looks much better now.
+
+• The hot seat is getting hotter for Brady Hoke and Will Muschamp. Fire up the rumors of Jim Harbaugh to Michigan and Dan Mullen to Florida.
+
+• For the record, since 2012, Rich Rodriguez is 20-10 at Arizona. Brady Hoke is 17-13 at Michigan.
+
+• Arizona’s last second Hail Mary to beat California is the early candidate for Play of the Year.
+
+• The difference between the SEC West and the SEC East is similar to the difference between the NBA’s Western and Eastern Conference. I’d take the SEC West over the top seven in any other conference.
+

@@ -1,0 +1,74 @@
+---
+layout: post
+categories: the-buckets-blog
+author: "Cole Frederick"
+title: "Why We Can't Be Friends: A recap of Rivalry Weekend"
+date: "2014-12-02"
+---
+
+There were three major top 10 upsets on Saturday, but the biggest loss of the weekend was the injury to Ohio State quarterback J.T. Barrett. The Buckeyes had already lost quarterback Braxton Miller for the season due to an injury, but Barrett had become a Heisman candidate in his place. Barrett’s injury came during a 42-28 win over Michigan. Now without its best player, again, the Buckeyes’ playoff hopes have diminished drastically — unless the committee plans on leaving the future out of it.
+
+Even if Ohio State defeats Wisconsin in the Big 10 Championship Game, it’s hard to imagine the selection committee putting Ohio State in the playoff field over Baylor or TCU due to the injury of Barrett. If third string quarterback Cardale Jones leads Ohio State to a big win over Wisconsin, it would certainly create a difficult decision for the committee. However, if the favorites win this weekend, the winner of the Big 12 should make it over the winner of the Big 10.
+
+The Upsets
+
+Mississippi State was in a great position to finish 11-1 and possibly make the playoffs, but the Bulldogs were dominated in every facet of the game against rival Ole Miss. The Rebels’ defense did a phenomenal job containing Dak Prescott. Prescott still threw for 282 yards and a score, but he only had 48 yards on 24 carries and one touchdown on the ground. To beat Ole Miss, Mississippi State needed to find a consistent running game. In losses to LSU, Auburn, and Arkansas, the Rebels were gashed on the ground. Mississippi State only rushed for 163 yards, and they were forced to rely heavily on the passing game.
+
+Entering the weekend, there were a few teams with two losses that still had an outside chance of earning a playoff bid. Georgia’s chances diminished greatly when Missouri defeated Arkansas and earned a berth to the SEC title game. The Bulldogs still had a chance to pick up a big win over an in-state rival, but somehow they blew a three-point lead with 18 seconds left to Georgia Tech.
+
+UCLA, the nation’s most unpredictable team, was also one of the hottest teams in the country entering its matchup at home against Stanford. All the Bruins had to do was beat a struggling and offensively limited Cardinal team to win the Pac 12 South. Instead, UCLA was blown out 31-10.
+
+Now, the only two-loss team with a legitimate chance of sneaking into the playoffs is Arizona. The Wildcats should check in at the seventh spot in the new rankings, and they have a rematch with Oregon on Friday. Arizona would obviously need some help even if they beat the Ducks, but a second win over a really good Oregon team should at least warrant some consideration by the committee.
+
+The Contenders
+
+Alabama, Oregon and Florida State all have the same path to the playoffs: win conference titles and you’re in.
+
+https://twitter.com/ColeFred24/status/538917051021410305
+
+https://twitter.com/ColeFred24/status/538912200443060225
+
+Alabama defeated Auburn, 55-44, in the highest scoring Iron Bowl of all-time. The Tigers led by 12 in the second half, but then the Crimson Tide suddenly remembered that they have Amari Cooper and that Auburn has no one who can stop him. The good news for Alabama is they don’t have to face a receiving duo as lethal as Sammie Coates and Duke Williams the rest of the season. The bad news is they won’t see another defense as bad as Auburn’s. Alabama should have a relatively easy game against Missouri in the SEC title game.
+
+Florida State did some more Florida State things against Florida. If you haven’t caught on by now, every Florida State game goes as follows:
+
+1) Florida State starts the game and looks completely disinterested (and possibly hungover).
+
+2) Jameis Winston throws three or four first half interceptions.
+
+3) Winston squints a lot at the sidelines.
+
+4) Jimbo Fisher says things to sideline reporters, and no one takes him seriously.
+
+5) The ‘Noles make a lot of dumb mistakes on both sides of the ball, allowing an inferior opponent to hang around into the fourth quarter.
+
+6) The Seminoles trick the world – and their opponent – into thinking they can win the game.
+
+7) People on Twitter start to suggest that this might finally be the game the Seminoles lose.
+
+8) Florida State wins.
+
+9) People get mad.
+
+Florida State beat Florida, 24-19, following that exact criteria, and now they play Georgia Tech in the ACC Championship Game on Saturday. I know a lot of people hate Florida State/Winston/Jimbo, but I think they’re great for college football. It’s good to have a villain.
+
+Oregon quietly has been the most dominant team in the country since they lost to Arizona. The Ducks have won seven consecutive games and they’ve won every game by double digits. The closest game was a 12-point win over UCLA, and Oregon controlled that game from the start. The Ducks get a chance to avenge their only loss of the season against Arizona, and they should be playing their first playoff game in the Rose Bowl if they knock off the Wildcats.
+
+TCU, Baylor and Ohio State are all fighting for the fourth spot. I already mentioned how Ohio State’s chances diminished greatly with the injury to Barrett, which brings us to the two Big 12 teams.
+
+https://twitter.com/ColeFred24/status/538852832959803392
+
+I think TCU is better than Baylor despite the loss in Waco earlier this year. The Horned Frogs might be the most complete team in the country. However, if it comes down to those two teams, the committee has to choose Baylor. You can’t ignore that head-to-head win. Both teams would be 11-1. The Bears have a tough finale against Kansas State, and I think a win over the Wildcats would put Baylor above TCU.
+
+Extra Points
+
+• Some Iron Bowl musings (warning – some homer opinions included): First, this is the best rivalry in college football. I’m a little biased since I’ve been an Auburn fan my whole life, but this rivalry means everything to these schools. The winner of the past five Iron Bowl’s went on to play for a national title. Alabama is obviously the more prestigious football program, and they have far more national titles (though maybe not as many as they seem to think). The head-to-head between the two is 43-35-1 in favor of the Tide. I didn’t think Auburn had much of a chance. I thought the team quit after the Georgia game. I had seen this script before from an Auburn team, and I just assumed they’d roll over in Bryant-Denny Stadium. Instead, the Tigers played one of their best offensive games of the year. Gus Malzahn had the perfect plan to attack Nick Saban’s defense and it worked for the most part. Everyone knew Alabama would be able to score at will against Auburn’s defense, so the Auburn offense had to be perfect to win. And they almost were perfect.
+
+The only thing separating these two on Saturday night was red zone efficiency. Alabama was sensational on both sides of the ball in the red zone. Despite giving up a school record 628 yards, Alabama held Auburn to five field goals inside the 20. The Tigers were able to hit several deep balls to Coates and Williams, but they couldn’t score touchdowns with the running game. On offense, Alabama pushed Auburn around in the red zone. Cooper is one of the best college receivers I’ve ever seen, and he was truly special to watch (even as he lit up my team). The better team usually wins in this rivalry, and that was the case yet again this year. Sign me up for several more Gus Malzahn vs. Nick Saban matchups.
+
+• Two major college football jobs became available over the weekend. Florida had already fired Will Muschamp before Saturday, but his tenure came to a close with yet another frustrating loss. Nebraska fired head coach Bo Pelini, who won at least nine games for seven straight years but could never seem to win any big game.
+
+https://twitter.com/thatjoemags/status/538851109620957185
+
+• I can’t be the only football fan who gets extremely frustrated when coaches botch clock management issues. It happens all the time and at every level at football. In the Browns/Falcons game two weekends ago, it seemed Mike Pettine and Mike Smith were in a competition to see who could manage the clock worse (as always, Mike Smith won). Les Miles is the king of clock mismanagement, but coaches all across the country have tried to outdo him. Dan Mullen was atrocious in both the Alabama and Ole Miss games. Hugh Freeze is almost always bad. Gus Malzahn really messed up clock management at the end of the first half of the Iron Bowl. Will Muschamp – well, this one isn’t really a surprise, considering there’s math involved. And that’s just in the SEC. It happens everywhere. Teams need to hire me to manage the clock at the end of halves. It’s really not complicated, but head coaches seem to be really confused by clock management.
+

@@ -1,0 +1,35 @@
+---
+layout: post
+categories: editorial
+author: "Alain Pierre-Lys"
+title: "Old dudes still perpetrating inequality"
+date: "2014-09-01"
+---
+
+\[caption id="attachment\_290" align="alignnone" width="500"\][![JACKSONVILLE, FL - APRIL 21, 2014: Front of a Hobby Lobby store.](images/HobbyLobby.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/HobbyLobby.jpg) The Hobby Lobby ruling states that family-owned corporations can not be forced to pay insurance coverage of contraception.\[/caption\]
+
+It’s ironic I write this as I’m watching Django Unchained. Quentin Tarantino’s postmodern slave-comic features an unsightly but acknowledged side of our country’s history. Among the most disturbing parts about slavery was while it was “in”participants found it so normal - slavery was seen as something that would always be around. ([Tip of the cap to Steve McQueen for the excruciating moments in _12 Years A Slave_ that capture the insanity of slavery.](https://www.youtube.com/watch?v=92AmGY8P2po)) Things have changed, mostly for the better, and thankfully society no longer tolerates the outright hanging of innocent men and women.
+
+While we no longer have to deal with the bigotry and disgusting justifications that came with slavery, our society is still idly allowing a different type of injustice to occur.
+
+Just recently, Ray Rice of the Baltimore Ravens was suspended two games for his involvement in a domestic abuse incident including his then fiancé and now wife, Janay Palmer. Rice was indicted by a grand-jury for third-degree aggravated assault; he then married Janay the next day. Palmer has been vocal in her support of Rice and the couple appears to have worked past the incident, with Palmer even pleading for Roger Goodell to lessen Rice’s punishment. Goodell, known for his unwavering, strict punishments, seems to have listened because two games is surely a gift for Rice.
+
+\[caption id="attachment\_291" align="alignleft" width="223"\][![NEW YORK-JAN 31: Football player Ray Rice attends ESPN The Party](images/RayRice-223x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/RayRice.jpg) Ray Rice's weak punishment sends the message that the NFL doesn't take the safety of women seriously\[/caption\]
+
+Punishment in the NFL can be harsher than Robert DeNiro’s character in [_Meet The Parents_](https://www.youtube.com/watch?v=4-OwMoAsP38) . The examples are endless - the Saints bounty scandal that left players and coaches suspended and head coach Sean Payton suspended for a year; Michael Vick’s indefinite suspension for his heinous acts against dogs; and the slew of drug suspensions each year like the ones handed out to Josh Gordon and Justin Blackmon. The “No Fun League”as it is often referred to even heavily fines players for wearing the wrong socks and bans end zone celebrations like [dunking the ball over the goal post](http://www.sportingnews.com/nfl/story/2014-03-25/nfl-dunking-goal-post-penalty-penalized-celebration-officiating-no-fun-league-dean-blandino-jimmy-graham-calvin-johnson-megatron).
+
+The NFL takes their image seriously, obviously. So why did it open itself up to so much scrutiny with this two-game farce? Why does it seem like they care more about enforcing drug suspensions then disciplining those who hurt [women ](//elitedaily.com/sports/nfl-players-who-beat-their-wives-get-lighter-suspensions-than-those-who-smoke-weed/682164/))and [civilians](http://www.cbssports.com/nfl/eye-on-football/24484389/former-wr-donte-stallworth-remembers-deadly-dui-accident)?
+
+They just don’t take issues involving non-football players, women in particular, all that seriously.
+
+Now if that wasn’t bad enough, this is all playing out in the midst of the [Hobby Lobby decision](http://www.nytimes.com/2014/07/01/us/hobby-lobby-case-supreme-court-contraception.html?module=Search&mabReward=relbias%3As) that only compounds the raw deal that women have. Like Rice’s suspension, the Supreme Court decisions concerning Hobby Lobby aren’t just one sided. The companies involved in this Supreme Court case, Hobby Lobby and Conestoga Wood, believed that the Affordable Care Act’s contraception mandate infringed on their religious freedom. (I’ll leave the confusing political details aside like giving corporations equal rights as people, but this ruling has opened up a large can of worms.)
+
+These companies weren’t opposed to all forms of contraception, namely the morning after pill and certain intrauterine methods. Here’s my problems with this is - these two types of birth control, the morning after pill and intrauterine devices, are frequently presented as an easy way out for women. Like I mentioned earlier, the two companies didn’t object to all forms of contraception, just these. So it could be argued this isn’t even about healthcare; the heads of Hobby Lobby and Conestoga don’t want their women employees to use “easy”forms of contraception.
+
+But contraception isn’t easy at all. Women use the myriad of different methods for each of their individual reasons. This comes down to something we’ve already talked about - Hobby Lobby and Conestoga Wood don’t take women seriously.
+
+The conservative TV dream team jumped at the opportunity to bash [![female belly with contraception pills, isolated on white backgro](images/BirthControl-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/BirthControl.jpg)the Affordable Care Act and sight how unjust it was for the law to force a company to compromise their religious beliefs. They didn’t mention women having to compromise their personal health. Stephen A. Smith, journalist and member of ESPN First Take, used the Ray Rice suspension as a moment to jump on top of his soapbox about preventative measures women can take to avoid being abused. (Is it their fault they are being abused?) Though a lengthy tweet apology followed, why even mention preventative measures? It shouldn’t matter what type of contraception is used by your employees, they should just be able to use it. Who cares if Ray Rice and Janay Palmer reconciled? He deserves to be punished appropriately - based on his actions - not on the aftermath.
+
+The powers behind these decisions - Roger Goodell, the Supreme Court - have something in common though: they’re all old dudes. My point now comes back to Django. A bunch of old dudes were the ones who instilled our nation with the idea that people who were a different color were somehow less than everyone else. What we need now is for the younger generation to continue ascending into power positions, mixing in with the old dudes, and for the young idea of total equality to supplant the tired old philosophy of taking women any less serious than we do men. Human rights and women’s rights are the same battle. That’s how we need to start thinking about it.
+
+ 

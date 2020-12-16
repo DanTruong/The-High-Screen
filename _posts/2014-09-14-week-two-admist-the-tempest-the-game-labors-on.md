@@ -1,0 +1,191 @@
+---
+layout: post
+categories: the-buckets-blog
+author: "Tim Mullhaupt"
+title: "Week Two: Amidst the Tempest, the Game Labors On"
+date: "2014-09-14"
+---
+
+It was the week from hell for the NFL. One baby step was taken by a franchise that was at the very center of the storm that now has their front office and the league's highest office in the cross hairs of the nation. The Baltimore Ravens displayed tremendous resolve Thursday night, trouncing arch rival Pittsburgh in a game that was theirs from the start. The win marks an impressive first step by Baltimore's locker room in their quest to put the Rice distraction behind them and begin the climb up the AFC North ladder. Pittsburgh on the other hand...more on them later in the week.
+
+Now amidst allegations against one of its marquis players and oldest owners, the rest of the league has to take their own steps to remind us all the redeeming qualities that have made football the game we all love.
+
+ 
+
+Onto this week's games
+
+**This Week's Record:** 0-1
+
+**Last Week's Record:** 8-8
+
+**Season Record:** 8-8
+
+ 
+
+## 1:00 Games
+
+**Miami at Buffalo**
+
+A crucial battle within the AFC East, it's hard to pick a team that's definitively better in this matchup.
+
+On one hand you have Ryan Tannehill and the other E.J. Manuel, two quarterbacks on a mission to prove the worth of the high investment placed in them. Each has a weapon purchased with an equal, if not greater investment in Mike Wallace and Sammy Watkins. Neither (although it's been just a handful of preseason snaps and one game for the Manuel-Watkins connection) has been able to reward their high-spending organizations.
+
+The pairings of running backs for each team are a push in the sense that you never quite know what to expect. Buffalo has speedy-yet injury-prone C.J. Spiller and versatile yet aged Fred Jackson. Miami features a potential workhorse in Knowshon Moreno and their own speedster in Lamar Miller, but the later has been been a beneficiary of focus on better talent around him (see 2013 Denver Broncos) and Miller has struggled to show much in his young career.
+
+Defensively, there can be no questioning Buffalo's front four. Mario Williams, Marcell Dareus, Kyle Williams and Jerry Hughes are as lethal a mixing of lineman as you'll find in the league. They'll test the Dolphins' fledgling offensive line. Miami has a stalwart pass-rusher of their own in Cameron Wake. Buffalo will need to negate him if they want to keep Manuel healthy and high-functioning.
+
+ 
+
+**Prediction:** **Buffalo 24 Miami 16- **[Terry Pegula's successful purchase of the Bills](http://www.thehighscreen.com/2014/09/buffalo-bills-new-owner/) ensures the Bills' future in Buffalo so long as he owns the franchise. Given the fact that Pegula seems to have the crosstown Buffalo Sabres trending in the right direction, the Ralph Wilson regulars should be in rare form Sunday, giving the Bills the playoff-like atmosphere that they haven't had since 1999.
+
+ 
+
+**Jacksonville at Washington**
+
+Ugh. Not the most appealing of matchups, Jacksonville and Washington figures to be a scrap between two of the scrap heap's most regular dwellers. The Jaguars are on a mission to leave the heap all together while Washington is still trying to figure out how they fell back in, following 2012's not-so-far away successes.
+
+RGIII has been stagnant and injured since his rookie season and Chad Henne has floundered between backup and starting roles in the state of Florida since his entrance to the league in 2008. Griffin has the potential to return to form if he can adapt to the new offense Jay Gruden has installed. That wasn't the case against Houston last week as J.J. Watt and the Texans pass-rush haunted RGIII in a dismal six-point offensive showing. Henne showed signs of life last week against Philly, but once the Eagles figured out how to cover Allen Hurns, the jig was up, and Jacksonville surrendered 34 unanswered points to drop their first game of the season.
+
+Alfred Morris is clearly the best runner in this contest; the third-year back ran for a YPC of 6.5 on 14 carries and 91 yards against a stout Texans front seven but failed to find the end zone. Look for his workload to increase against a decent-yet inconsistent Jacksonville defense. Toby Gerhart has been disappointing in the preseason and early going for the Jags, running for just 18 carries and just 42 yards against the Eagles last week.
+
+The wide receivers provide the most intrigue in this contest as Pierre Garçon and DeSean Jackson square off against the upstart, undrafted wide receiver Allen Hurns, Marqise Lee with Cecil Shorts doubtful to play. Plenty of speed in both corps will make any defensive backs' jobs tricky today. If the Jags continue to struggle to establish the run, they'll lean heavily on their pass-catchers to keep them relevant. Washington's backup, 6'1" tight end Niles Paul could be the x-factor with starter Jordan Reed out with a hamstring injury. He led the team against Houston with 86 yards.
+
+Defenders like Brian Orakpo and Ryan Kerrigan will have to elevate their game this week, as the dynamic pass-rushing pair combined to collect only seven tackles, none of which were sacks or tackles for loss. The Jaguars had no problems pressuring the QB in Philly, registering a whopping five sacks against one of the league's best offensive lines. The unit also forced three turnovers, something Gus Bradley had to consider a silver-lining to an otherwise epic collapse.
+
+ 
+
+**Prediction: Redskins 20 Jaguars 16-**Neither team is in an ideal spot. The Jags are on the rise but the Redskins
+
+ 
+
+**Dallas at Tennessee:**
+
+This one may be trickier than it appears to be on paper. Let's be frank. Dallas exhausted the thesaurus with how badly they played against San Fran last Sunday. Romo couldn't find any rhythm, and threw three brutal interceptions. The defense while not terrible, did few favors to slow the once-struggling 49er offense down. That said, do we really expect Dallas' offense to continually sputter in this way? No-at least not yet. There's too much talent in the skill positions to expect this to last. That said, good offenses can still-and will-take advantage of Big D's defense.
+
+The question becomes is Tennessee an elite offense? Hardly, but Whisenhunt didn't earn the name "Whiz" for pinball. Expect Justin Hunter to be given a considerable number of vertical routes in an attempt to take advantage of Dallas' mediocre safeties. The Titans won't be pushovers on defense either as Ray Horton's new 3-4 scheme had a sparkling debut against the hapless Chiefs. The unit wracked up four sacks and three interceptions, all the while holding Kansas City to just 245 total yards. That included all-world runner Jamaal Charles to just 19 yards on seven carries and 15 yards on four catches.
+
+ 
+
+**Prediction: Titans 27 Cowboys 24-**The Cowboys won't be totally helpless. They'll make some highlight plays. But with an improved pass rush and a good secondary, the Boys won't be able to move at will. Until the defense proves to be in any way competent it's hard to bet on the Cowboys. The added legal troubles of their owner won't help, even if they're background noise to the Ray Rice and Adrian Peterson situations.
+
+ 
+
+**Arizona at NY Giants**
+
+I'll say it and I won't enjoy it. The Giants are bad. Really bad. If Eli continues this pace, they might be top-five pick bad. Hell if this level of mediocrity continues, can we really rule out seeing Ryan Nassib at some point this season? I'd lean towards removing that "nuclear option" but with quite the crop of QB's in this upcoming draft class it would be nice to know if there's a future franchise player at the position already on the roster. Back within the confines of the 2014 season, if no improvement is made at the quarterback position, teams will continue to lean towards more of their base defense packages, ones that will be more effective in limiting the run and talented players like Rashad Jennings and force Eli into marginal decision-making. The defense isn't off the hook either. For the amount of money the Giants invested on that side of the ball in the offseason, the 417 yards and 35 points surrendered to the Lions has to be disheartening.
+
+Arizona may have finally put the proper pieces around Carson Palmer to give him one of his last chances at his playoff run. Fitzgerald, Michael Floyd, and John Brown provide a size-size-speed combo that teams will have a tough time defending. Andre Ellington provides speed and hands out of the backfield, and the defense features up and coming players in Patrick Peterson and Tyrann Mathieu (when he finally gets healthy) that provide speed and play-making to an already stout front-seven. The Giants don't have the requisite talent to do a whole lot of damage to that unit.
+
+ 
+
+**Prediction: Cardinals 30 Giants 14**\-It won't be pretty and the boos from New York will only continue their crescendo. More quietly, the Cards will emerge as dark horses in the already stacked NFC West.
+
+**New England at Minnesota**
+
+Prior to Adrian Peterson being deactivated, I really thought the Vikings had a chance in this one. They may still, but not nearly the fighting chance I was willing to give them what with the Pats defense having no superstar to commit defenders to. Matt Cassel besting his old team may have been too perfect of a headline. Still, the Vikings aren't entirely without a paddle. They were able to put up 34 points last week with Peterson rushing for just 75 yards and being held without a score, but to expect Cordarrelle Patterson to rush for over 100 yards again is a bit delusional. The second-year receiver can expect to have a Darrelle Revis-shaped shadow, one that is playing with a Mike Wallace-sized chip off his shoulder after the latter produced an 81-yard, one touchdown performance against the star corner last week. If the Vikings are to have any chance, they'll need to generate pressure on Brady and press his smaller corners at the line.
+
+That will be easier said than done. Brady rarely loses two games in a row and without having to do any extensive research, you can bet it's an even rarer occurrence that the three-time champ fumbles twice in two straight games. Against a less-than stellar Miami defense, Brady was held under 250 yards and his running backs under 100. Add in the nine penalties for 100 yards, and you find yourself with a very un-Belichickian performance. All of this leads me to believe there's little chance of a repeat performance. The defense has too many talented players-Chandler Jones, Jamie Collins, Dont'a Hightower, etc.-and Minnesota's offense, while largely young and talented, is going to have its fair share of growing pain games.
+
+ 
+
+**Prediction: Patriots 27 Vikings 20**\-There's too much working in favor of New England. If for some reason they do find a way to lose this game, it may be time to start the "cause for concern" train.
+
+ 
+
+**New Orleans at Cleveland**
+
+Looking for one-sided affairs? Look no further. Drew Brees is sure to be in seek-and-destroy mode after losing in overtime to a division rival in Atlanta. Cleveland was shredded by Pittsburgh last week, though the Browns finished a lot better than they started. If the transitive property applies, the more-talented Saints should be equal if not more successful than the Steelers were a week ago. Now of course it doesn't always work that way, but against an offense as dynamic as the Saints, there's not much doubt they could be in for a big day. Rookie Brandin Cooks adds speed and YAC that the Saints haven't quite had before. Jimmy Graham and Marques Colston are established, huge veteran targets. Joe Haden can't cover them all. Add into the equation that the Saints defense should be galvanized into beating up a poor Celveland offense following their abysmal showing against Atlanta's high-octane offense and you've got all the makings for a blowout.
+
+As far as Cleveland's chances go, they will do their darnedest to run the ball and control time of possession as they did in the second half against the Steelers. Don't expect the same results. The Saints defense has more bite in the form of big bodies up front like Junior Gallette and Cam Jordan. The speed and tenacity of their secondary May also provide matchup problems for the likes of Andrew Hawkins and Jordan Cameron. Defensively Cleveland will need to figure out a way to get to Drew Brees, Jabaal Sheard, Paul Kruger and Barkeivious Mingo need to get home when rushing the passer or else Brees will pick apart a secondary that looked overrated against the Steelers in week 1.
+
+ 
+
+**Prediction: Saints 33 Cleveland 12**\-The Browns drop to 0-2 teams that wear Black and Giold. There's just not nearly enough talent for the Browns to contend in this matchup and while upsets happen it would take more than a few package plays from Johnny Manziel to shock the Saints in this one.
+
+ 
+
+**Atlanta at Cincinnati**
+
+In what may be the best game of the week, a great passing game and running game square off as each opponent hasan opportunity to jump out to a 2-0 start. Both teams are riding high following big wins over division opponents a week ago, and it's hard to say which win was more convincing.
+
+The Falcons passing game looked like the real deal with Julio jones back and healthy and a rejuvenated Devin Hester. They figure to have a harder time against a Bengals secondary that features Leon Hall, Adams Jones, Dre Kirkpatrick and Darqueze Dennard. They'll also need to be sure to get the ball out quickly against a pass-rush that features monsters in GenomAtkins and Carlos Dunlap. The Falcons defense will have their hands full with AJ Green, as any defense will, but the key to beating the bengals will come in limiting a backfield that features speedster and receiving-threat Gio Bernard and workhorse Jeremy Hill.
+
+Cincy's offense won't be entirely reliant on the A.J. Green but they'll need to have other receivers like Marvin Jones, Mohamed Sanu and tight end Jermane Gresham to play up to speed to keep pace with the Falcons high-paced offense. On the other side, Cincy will have their hands full with Green's aforementioned draft classmate Julio Jones. They did a nice job limiting Baltimore's receivers outside Steve Smith's 80+ yard catch and run for six. They'll need to avoid such lapses if they wish to win this game.
+
+ 
+
+**Prediction: Atlanta 31 Bengals 28**\-I think the Falcons are back. I'm putting a lot of trust in Matt Ryan, but with a fully healthy arsenal I think he's better than Andy Dalton as of this moment. In a QB-driven league that makes me give the nod to the Falcons on the road.
+
+ 
+
+**Detroit at Carolina**
+
+Great offense against great defense. If the last Super Bowl proved anything, you always go with defense. That said, the strength in Carolina's defense lies in its front seven and not in its free agency-depleted secondary. Without Captain Munnerlyn and Mike Mitchell at their disposal and Calvin Johnson coming to town, this will be one of the best challenges the Carolina defense will face all season. Offensively with Cam Newton back in the fold the Panthers have a chance to keep pace with Detroit.
+
+The Lions need only throw the ball to Calvin Johnson's side of the field and Megatron will come down with the ball. Ok not really but it's closer to reality than you might think. Even with double coverage Johnson will find a way to produce. It's up to the rest of the supporting cast-Golden Tate, Reggie Bush, Brandon Pettigrew and Eric Ebron-to find the weaknesses in Carolina's sound unit.
+
+ 
+
+**Prediction: Lions 30 Panthers 20-**Matt Stafford looks like he's up for a career year. I expect him to take the next step and start consistently beating good defenses this year. It starts with Carolina.
+
+ 
+
+**St. Louis at Tampa Bay**
+
+The Rams are a mess. No quarterback, down one beastly pass-rusher in Chris Long, and without any high-quality receiving talent, there's too many holes in the roster to predict many wins for this team. Robert Quinn's signature is still drying on his four-year extension but he can't win games on his own. Zac Stacy could help matters but the back doesn't have the breakaway speed to threaten defenses beyond 10-15 yards.
+
+Tampa Bay does have some intriguing talent. Josh McCown faired decently in his first start with Tampa Bay, and week two figures to be a building block for younger players like Mike Evans. At some point Doug Martin needs to find his way back from the abyss his career seems to be lodged in. While the Rams have a stout front seven, a secondary spread thin by towering receivers like Vincent Jackson and Mike Evans could allow Doug Martin to run out of passing-sets and catch a few of his own passes. One thing is clear-Martin needs to be productive again for this team-McCown is not a good enough QB to run a one-dimensional offense effectively.
+
+**Prediction: Buccaneers 27 Rams 10**\-Not much of a surprise here. The Rams just looks listless and the Bucs have some legitimate talent.
+
+ 
+
+### 4:00 Games
+
+Seattle at San Diego
+
+Seattle looks like the best Super Bowl title defender in years. They're manhandling of the Packers shouldn't be a one-time occurrence, and going against a Chargers offense that isn't any better bodes poorly for San Diego. We saw Phil Rivers play decently against Arizona but a few late miscues resulted in the loss of an 11-point lead and 0-1 start. I don't see how things get easier against Seattle. Is Ryan Mathews better than Eddie Lacy? No. Is Keenan Allen better than Jordy Nelson or Randall Cobb? Maybe maybe not. My point here is, even if those two were better than their Green Bay counterparts they're not significantly better, and Seattle beat Green Bay by 20. Now it's not that cut and dry and the Packers certainly were not on their A-game, but I just don't see how the Chargers matchup favorably.
+
+ 
+
+**Prediction: Seahawks 28 Chargers 17**
+
+**Houston at Oakland**
+
+Bleh. Another lousy game. The Texans certainly bring more talent to the table defensively. Offensively their skill positions are better but the quarterbacking for both teams may be a push. The better of Derek Carr and Ryan Fitzpatrick may be the difference in this one.
+
+**Prediction: Texans 20 Raiders 13**\-Even without Clowney this team still can get after the passer and that doesn't bode well for rookie in Derek Carr. A few inopportune turnovers and an ok day for Fitzpatrick and the Texans should come away with the win.
+
+ 
+
+**NY Jets at Green Bay**
+
+A torqued off Aaron Rodgers against an injury-riddled Jets secondary. Hmmm. Not a good matchup. With that in mind the Packers should once again struggle to run the ball against a great Jets defensive line. So are the Jets completely dead in the water? No. Their offense should have a chance to move the ball especially on the ground against an undersized Packers defensive line that was absolutely gashed by Marshawn Lynch. Chris Johnson is not Marshawn Lynch but the Jets offensive line is better than Seattle's. Will that produce the same results? Not necessarily, but it should be sufficient enough to give the Jets a chance at winning the time of possession battle and keeping themselves in the game.
+
+ 
+
+**Prediction: Packers 24 Jets 21**\-Gang Greene makes it interesting but ultimately a Rodgers is too masterful and leads the Pack to an uncomfortable victory.
+
+ 
+
+**Kansas City at Denver**
+
+Remember when this was one of the most hyped contests of 2013? Don't expect anywhere near as close a game in 2014. The Chiefs lost too much talent in the offseason and while they still posses an above-average defense, they're not much of a match against a Broncos offense that appears to be as good as they were a year ago. Peyton will have a fine day against a lessened Chiefs secondary and even with the return of Dwayne Bowe, Alex Smith won't be able to lead scoring drives to answer Denver's.
+
+ 
+
+**Prediction: Denver 35 Kansas City 17**\-Denver went 2-0 against a better Kansas City Squad last year. I don't expect that to change.
+
+ 
+
+**Sunday Night Football**
+
+**Chicago at San Francisco**
+
+Brandon Marshall and Alshon Jeffery are game-time decisions for Chicago. If Cutler's top two wideouts miss the game this will be ugly. We saw what the Bills escaped with last week when both receivers ended up on the sidelines. Even if only one misses this game it'll still be an uphill battle. The best chance the Bears have is with both Marshall and Jeffery on the field. I think Matt Forte with the two wide receivers is in for a good day. With one he's still effective. Without either the 49ers stack the box and bottle him up. But you know what? Regardless of the health of Chicago's receivers, I'm taking San Fran in this one. The backfield is too deep, the defense too strong and the Bears defense is not special. It'll be a close one but the Niners come away with their second victory.
+
+ 
+
+**Prediction: 49ers 30 Bears 24**\-Don't despair yet Bears fans. Your offense is still among the best in the league, but this is a matchup I'm just not too high on. The Bears should remain playoff contenders even with the slow start.
+
+

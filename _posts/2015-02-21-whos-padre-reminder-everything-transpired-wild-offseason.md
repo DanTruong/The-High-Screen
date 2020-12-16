@@ -1,0 +1,78 @@
+---
+layout: post
+categories: the-buckets-blog
+author: "Taylor Nigrelli"
+title: "Who's your Padre? A Reminder of Everything that Transpired in a Wild Offseason"
+date: "2015-02-21"
+---
+
+The MLB free agency period is a strange one. It isn’t like the NBA or NHL, which both happen in the early July dead period, or the NFL which can happen whenever it damn well pleases (but also falls in the usually dead first half of March).
+
+Additionally, the MLB’s free agency period seems to stretch in a way that the leagues’ don’t. The first few days are insanely busy but marque guys like James Shields and Max Scherzer remain unsigned for months.
+
+Both factors, along with baseball’s shrinking significance in the national sports conversation, make it difficult to remember what exactly happened during the mass shuffling of players over the winter. To minimize the amount of people spitting coffee out through their nose on opening day upon learning Didi Gregorius is indeed the starting shortstop of the New York Yankees, I’ll try to remind everyone what kind of offseason each team had.
+
+**Teams that unquestionably got better**
+
+**Boston:** In an effort to complete a hilarious four-year worst to first to worst to first run, the Red Sox had quite the busy offseason. After finishing off 2014 with essentially one capable starting pitcher, the Sox acquired Wade Miley, Justin Masterson and Rick Porcello. They’re not exactly the Nationals, but they now have a solid enough rotation to back up what should be one of the American League’s better offenses. With Hanley Ramirez and Pablo Sandoval on board, a repeat of 2013 doesn’t seem too far-fetched.
+
+**Toronto:** The Blue Jays have the longest playoff drought in North American professional sports by six years. That could end this year. If it does, it will likely have a lot to do with signing Russell Martin and trading for Josh Donaldson. Both were among the most valuable players in baseball last year. Letting J.A. Happ and Sean Nolin go without signing any pitching help is a pretty clear sign they Jays are going to rely on some young guys to take the mound this year.
+
+**Chicago White Sox:** The Sox went all in this offseason, nabbing former Cub Jeff Samardzija, Yankee closer David Robertson, highly underrated veterans in Adam LaRoche and Melky Cabrera and speedy Emilio Bonifacio. With MVP candidate Jose Abreu and Cy Young contender Chris Sale already on board, the White Sox could compete for the Central Division Title.
+
+**Chicago Cubs:** This was quite an offseason for the city of Chicago. Throw in Derrick Rose’s return, John Fox’s arrival and the Blackhawks continued dominance and this could be quite a year for the Windy City. The Cubs reacquired Jason Hammel and signed Jon Lester to join an already solid pitcher staff. Solid depth players like Jason Motte, Miguel Montero and David Ross join a slew of young sluggers and newly-acquired manager Joe Maddon on what could be one of baseball’s most fun teams.
+
+**Houston:** After years of cutting costs and looking toward the future, it appears the Astros are finally ready to contend. They didn’t really give up anyone of note from the vastly-improved 2014 team (a 19-win jump) and they added a solid starting catcher in Hank Conger, reliable relievers in Luke Gregerson and Pat Neshek and some nice bats in Evan Gattis, Jed Lowrie and Alberto Callaspo. Watch out, ladies and gentlemen. The Astros will be fielding an actual baseball team this year.
+
+**San Diego:** Baseball’s most anonymous franchise threw its hat in the ring in a major way this offseason. The Padres were easily the busiest team early in the offseason, wheeling and dealing at a ridiculous rate. When the dust settled, the Padres had parted ways with most of last year’s painfully mediocre core as Seth Smith, Johnny Barbato, Ryan Hannigan, Jace Peterson, Jesse Hahn and Joe Wieland ended up elsewhere. San Diego acquired Matt Kemp, Wil Myers, Will Middlebrooks, James Shields, Justin Upton, Shawn Kelley and Clint Barmes. Obviously, this doesn’t guarantee anything for the Padres. Questions remain about how [healthy](http://www.sbnation.com/mlb/2014/12/18/7416077/matt-kemp-trade-dodgers-padres-arthitis) Kemp will be, what Myers actual ceiling is, how much Shields has left in the tank and whether Middlebrooks has any ability to consistently hit. The Padres are building a foundation, but one built on flawed players and risky contracts. Either way, San Diego should be far more notable than it has been the past decade.
+
+**Miami:** For seemingly the first time in franchise history, the Marlins are attempting to build a team that can [sustain success](http://grantland.com/the-triangle/miami-marlins-spending-contending-giancarlo-stanton-mat-latos-martin-prado-jose-dee-gordon/). In addition to eventually getting superstar pitcher Jose Fernandez back from injury, the Fish signed slugger Giancarlo Stanton to the richest contract in pro sports history, traded for Dee Gordon, Martin Prado, Mat Latos and Dan Haren and signed Michael Morse. They lost three solid players in Casey McGehee, Nate Eovaldi and Garrett Jones but there’s no question that Miami is in a better place than it’s been since 2003.
+
+**Teams that May Have Gotten Better:**
+
+**Seattle:** The Mariners surprised some people last year in winning 87 games and nearly sneaking into the playoffs. Last year’s team was the ultimate “stars and scrubs” roster. Instead of relying on the same five guys again this year, the Mariners added some depth with Seth Smith, Justin Ruggiano, Nelson Cruz and J.A. Happ. The Mariners aren’t a playoff team for sure, but it seems Seattle is better off than it was last year at this time.
+
+**Washington:** The Nationals added Max Scherzer to what might be one of the great pitching staffs in baseball history. Besides that, the offseason wasn’t too kind to the nation’s capital. The Nats lost Tyler Clippard, Steven Souza Jr., Ross Detwiler and Adam LaRoche. Washington still has most of last year’s best players, but doesn’t have a lot of depth or offensive talent. With the rotation in place, that might not matter.
+
+**St. Louis: **The Cardinals were a playoff team in 2014 and probably will be again in 2015. The only big deal they made this winter was a REALLY big one as they brought in star outfielder Jason Heyward from Atlanta for solid, young hurler Shelby Miller and a few other players. The move was probably a wise one considering the Red Birds struggled at the plate for much of last season.
+
+**Hard to Tell:**
+
+**New York Yankees:** The once free-spending Yankees have resorted to wheeling and dealing the likes of Martin Prado and Nate Eovaldi. Jeter’s gone, Didi Gregorius is in. Shawn Kelley and David Robertson are gone, Andrew Miller and David Carpenter are in. Eovaldi essentially replaces Brandon McCarthy and Garett Jones joins as a utility guys in all likelihood. The Yanks are probably spinning their wheels, but there’s a chance this team is slightly better than last.
+
+**Cleveland:** The Indians nearly made the playoffs last season and added Gavin Floyd and Brandon Moss to the fold without losing anyone of note. Cleveland is likely in the same spot it was last season at this time.
+
+**Minnesota:** Ervin Santana joins the pitching staff because Phil Hughes can’t pitch every day. Torii Hunter, a former Minnesota staple, rejoined the team he spent the first 11 years of his career with. Both have seen better days but might have some left in the tank in the short term. Hunter’s skill set has totally flipped in the twilight of his career as he’s a much more effective hitter than he is in the field at this point.
+
+**Kansas City:** James Shields, to the surprise of no one, signed elsewhere. The Royals added Kris Medlen, seemingly to replace Shields. Alex Rios should provide some much-needed offensive consistency while Kendrys Morales is probably past the point of effectiveness.
+
+**Texas:** The Rangers lost Alex Rios and added Ross Detwiler and Yovani Gallardo in the offseason. If any improvement is coming Texas’s way, it will likely come in the form of players returning from injury. They won’t lose 90 plus in 2015.
+
+**New York Mets:** Matt Harvey. Matt Harvey. Matt Harvey. Matt Harvey. Matt Harvey. Oh, hey Michael Cuddyer still plays.
+
+**Los Angeles Dodgers:** The Dodgers, on the other hand, were pretty busy this offseason. They traded away Dee Gordon, but added Howie Kendrick. They lost Hanley Ramirez, Matt Kemp and Dan Haren but added Brandon McCarthy and Jimmy Rollins. It’s not clear whether the Dodgers are better or worse off after all this, but moving on from soon-to-decline guys like Ramirez and Kemp doesn’t seem like the worst idea.
+
+**Colorado:** Aside from losing 2013 NL batting Champion Michael Cuddyer (I know, right?), they didn’t do much in the way of free agency. Although, it’s never too late to start a “Tulo to the Yankees” rumor.
+
+**Teams That Got Worse:**
+
+**Philadelphia:** The Phillies seem to have finally recognize the demise of the Howard/Utley/Rollins era, just three years after it actually ended. They traded franchise staple Jimmy Rollins to LA and slugger Marlon Byrd to Cincinnati. It’ll be a long few years but a team is far better off recognizing its circumstances and acting accordingly than pretending it can compete.
+
+**Tampa Bay:** After an unexpectedly bad and somewhat unlucky 2014, the Rays seem content to look to the future. Gone is GM Andrew Friedman and manager Joe Maddon, both of whom fled to greener pastures. The team traded away former Cy Young winner David Price in July. The offseason saw more of the same as Yunel Escobar, Wil Myers, Ben Zobrist, Matt Joyce and Jeremy Hellickson will all wear different uniforms next season.
+
+**Baltimore:** The Orioles had their most successful season in nearly two decades in 2014, but 2015 may not be as kind. Starters Nick Hundley, Nick Markakis and Nelson Cruz are gone. No significant additions were made in the offseason. It seems the team is relying on Manny Machado’s return along with some positive regression for Chris Davis to pick up the slack.
+
+**Detroit:** No Rick Porcello, No Max Scherzer, No Torii Hunter. Alfredo Simon and Shane Greene are solid but won’t fill a void that large. Yoenis Cespedes should add some pop but his reputation is better than his actual [on-the-field value](http://bbstmlb.com/2014/11/30/yoenis-cespedes-overrated-maybe/).
+
+**Los Angeles Angels:** Losing Howie Kendrick and Hank Conger hurts (Jason Grilli too). Matt Joyce is a solid addition, though. The effectiveness of this offseason essentially hinges on how successful newly-acquired pitching prospect Andrew Heaney is early in his career.
+
+**San Francisco:** Losing two starters in Mike Morse and Pablo Sandoval while gaining nothing in return is an effective way to remain the even-year team.
+
+**Milwaukee:** The Brewers have won one playoff series in the past 32 seasons. Look for them to make that 33 this year.
+
+**Pittsburgh:** Francisco Cervelli to replace Russell Martin? Ask the Yankees how that worked out.
+
+**Cincinnati:** Parting ways with two starting pitchers (Mat Latos and Alfredo Simon) generally doesn’t bode well for the upcoming season.
+
+**Atlanta:** While everyone was focused on the Rays and A’s, the Braves had a sneakily-insane offseason themselves. Out is Evan Gattis, Justin Upton, Jason Heyward, Aaron Harrang, Emilio Bonifacio, David Carpenter, Kris Medlen, Gavin Floyd and Ervin Santana. In is Jason Grilli, Jace Peterson, Shelby Miller, Jim Johnson, Nick Markakis and Zoilo Almonte. Trading Gattis, Heyward and Upton made it seem like the Braves were ready to rebuild (which I'm not sure they should have been) but signing Markakis and spending a decent chunk of cash on other free agents? I'm not sure what they're going for here.
+

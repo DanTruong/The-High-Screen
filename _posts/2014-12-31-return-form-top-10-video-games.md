@@ -1,0 +1,77 @@
+---
+layout: post
+categories: show-dont-tell
+author: "Elliott Altland"
+title: "A Return to Form: Top 10 Video Games of 2014"
+date: "2014-12-31"
+---
+
+## With a new generation of consoles on the horizon, 2013 was a relatively slow year for video games.
+
+That being said, 2013 still managed to deliver _Grand Theft Auto 5_ and _The Last of US_ — two of the greatest games ever seen last generation. 2014 managed to deliver a diverse library of great games after a slow beginning and overcrowded end. The year, while not necessarily better than 2013, offered a more diverse pallet of video games and introduced a plethora of new intellectual properties.
+
+The most consistent themes surrounding video games this year were unusually negative. 2014 was plagued with delays, bugs, multiplayer service issues, and re-masters. Games like _Assassins Creed Unity, Halo: The Master Chief Collection,_ and _Driveclub_ were broken to the point of being unplayable initially after release. While almost all games affected by these issues have been fixed, and players given free content as reprimands, it has cast a shadow over the year; by the end of November journalists were praising video games for just being able to function. Many other games that weren’t ready for release were delayed as a result; _The Witcher 3: The Wild Hunt, Batman Arkham Knight, and Battlefield: Hardline_ among others were all delayed deep into 2015.
+
+While it hasn’t been a great year in review, there is always a level of transition when switching consoles. To go along with this transition we saw a plethora of great games re-mastered or upgraded for the next generation. While none of these games will make my top 10 list, many of them would have if they had just come out this year, they deserve an honorable mention. Games like _Tomb Raider: Definitive Edition, The Last of Us Remasterd, Final Fantasy X, Metro Redux, Grand Theft Auto 5, Gucamelee_ and more all made the jump to next generation and did so in incredible fashion.
+
+Finally before jumping into the list it is important to note the limitations. As being just one person I wasn’t able to play every single game released this year, but I tried. Games _like Captain Toad, Mario Kart 8, Broken Age, Child of Light, Wolfenstein, Shovel Knight_ can’t make my list because I unfortunately couldn’t get to them. I can’t wait to get to all of those games, but with my limited time I choose to focus on the bigger 3DS, Xbox One, PS4 and Vita releases. I was successfully able to play over 40 major releases this year, and from them I choose my top 10.
+
+https://www.youtube.com/watch?v=e9al\_k8e93I
+
+10. **Far Cry 4**
+
+_Far Cry 3_ is one of my favorite games of all time; from the open world exploration, RPG leveling system, fantastic FPS gameplay, to Vaas there is little I don’t love about that game. _Far Cry 4_ is more of a direct expansion to that game rather than a new formula, as seen in previous Far Cry games, but that’s not a bad thing. _Far Cry 4_ takes everything that made its predecessor great, improves upon it, and then adds mountains of new content on top of it. A massive world to explore, countless unique and engaging side quests, new animals, weapons and gear all make for an incredible experience. Though not without narrative faults, _Far Cry 4_ is a fun and engaging open world that will keep you entertained for hours.
+
+https://www.youtube.com/watch?v=3FPtT4C870c
+
+9. **Titanfall**
+
+There was no game hyped up more at E3 2013 then _Titanfall_, and it was slightly disappointing. _Titanfall_ makes this list because it has a fun and innovative formula that finally did something to help make the FPS market fresh again. The narrative experience was borderline non-existent, and the variety of content (maps, weapons, titans) was disappointingly shallow. Criticisms out of the way, _Titanfall_ was a game that continued to improve months after its initial release. The game changed multiplayer FPS, making them faster, more fluid, engaging, and dynamic. Over the course of the year the amount of game modes has almost doubled introducing titanless modes, cooperative wave based gameplay, and a variety of new ideas.
+
+https://www.youtube.com/watch?v=9ZyQK6kUdWQ
+
+8. **Destiny**
+
+Very similar to the flaws in _Titanfall_, _Destiny_ was the most talked about game coming out of E3 2014 but was met with disappointment. Bungie promised that _Destiny_ would be an industry changing console game, but it lacked content and depth. The biggest flaw in _Destiny_ is its poor excuse for a narrative experience, which then coupled for its lack of missions, and then lack of content in open world areas led to poor reviews. The game makes the list though because of its engaging combat, creative world design, unique and always online structure and unparalleled visuals. _Destiny_ is a beautifully hollow game that invites and entices players for hours until it sadly runs out of content; _Destiny_ has all of the creative and unique world building that Bungie is known for, but does an incredibly bad job of allowing the player to explore it. The greatest aspect of _Destiny_ though is its combat which enabled my favorite competitive multiplayer FPS of the year (outside of _Halo 5: Guardians_ Beta). _Destiny_ makes this list almost entire on combat and graphics alone; while the game is lacking content it’s remarkable to think of the potential the series has.
+
+https://www.youtube.com/watch?v=rG-FfvIS-kI
+
+7. **Kirby Triple Deluxe**
+
+If it’s weird for you to see that title alongside _Destiny_ and _Titanfall_ you aren’t alone. While _Kirby Triple Deluxe_ doesn’t exactly change the wheel, it’s a great standalone platform for any fan of the genre. The game isn’t really ambitious in any way, but what it lacks in creativity it more than makes up for in execution. _Kirby Triple Deluxe_ brings 3D and new powers to the world of Kirby, and does so in an engaging and memorable experience. The single player narrative alone would warrant this game a place on my list, but it also has two secondary game modes that allow for hours of additional fun. The game is a good platform, a great Kirby game filled with tons of fun and creative powers, and a polished Nintendo game that highly encourages replay ability and the urge to collect everything.
+
+https://www.youtube.com/watch?v=Y0Ufja-ljUc&oref=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DY0Ufja-ljUc&has\_verified=1
+
+6. **South Park: The Stick of Truth**
+
+It’s rare to find really good comedy in games that doesn’t cross the line into cheesy or over the top; _South Park: The Stick of Truth_ not only makes it look easy, but it’s an incredibly fun casual RPG that even non-fans of the show can enjoy. The game looks exactly like an episode of the show and takes the player on an adventure across the town delivering laughs consistently throughout. While South Park lacks the depth that some hardcore RPG fans look for, the game makes up for this by providing engaging and dynamic combat that never borders on tedious or grinding. Whether or not you are a religious watcher of the show, _The Stick of Truth_ is a hilarious game and the prime example of how to make a video game tied to an existing intellectual property.
+
+https://www.youtube.com/watch?v=Re4SHwP-7Sk
+
+5. **Halo: The Master Chief Collection**
+
+The remake of _Halo 2_ and the _Halo 5: Guardians_ Beta are almost enough for this game to crack my top 10 list, but it goes above and beyond those small feats and puts all four core Halo campaigns on one disc. The game packs over 100 maps and the expansive forge mode, classic Halo custom games, multiplayer for all four Halo games, all four Halo campaigns, and a variety of new achievements, challenges, and custom level playlists. _Halo: The Master Chief Collection_ easily provides over 100 hours of content and would be enough game to last someone an entire year. It not only successful brought Halo to the next generation, but it recreated _Halo 2_ and allowed players to go back online and relive the epic campaign. The game suffered terrible server issues for a couple weeks after launch, but now that those are fixed we can experience everything this game has to offer.
+
+https://www.youtube.com/watch?v=xvudMu-5kIU
+
+4. **Super Smash Bros (Wii U/3DS)**
+
+My favorite fighting game of all time, _Super Smash Bros._ is the ultimate couch multiplayer. The game is unmatched in its ability to get people in a room and playing together. It would be really easy to add new characters and bring the game into the next generation, but Nintendo went above and beyond delivering piles of new content. New game modes, thousands of collectibles, challenges, events, and all the classic smash we know and love. The best part about this game wasn’t the epic 8 player smash, but how surprisingly well the game played on 3DS. After hundreds of matches on my handheld, my game rarely suffered any issues and I found myself playing it over and over again. Smash bros only flaw has been its single player, the game just isn’t as much fun alone as it is with friends, but there are hours’ worth of content in these games to keep anyone entertained.
+
+https://www.youtube.com/watch?v=s\_LmilGAhaM
+
+3. **Sunset Overdrive**
+
+While the three biggest new intellectual properties of the year were somewhat disappointing (_Titanfall, Destiny, Watch Dogs_) we got two other games that went above and beyond expectations. _Sunset Overdrive_ was criminally under hyped going into release. When it came out it caught players and critics off guard and is my sleeper hit of the year. The game is gorgeous; while it doesn’t rock the breath taking photo realistic graphics we see across other next gen games, it does use color and animation better than anyone else to create a world full of life and energy. The game is meta (aware that it is a game) and would have been the funniest game of the year if South Park had been delayed again. Finally, _Sunset Overdrive_ excels because everything you do in the game is fun and full of energy. After a couple hours players will be moving nonstop across the city grinding, bouncing, dashing and wall running killing monsters and causing explosions in the process. _Sunset Overdrive_ is hard to put down because of its beautiful visuals, exciting gameplay, and smart narrative.
+
+https://www.youtube.com/watch?v=4rbOTQhasnM
+
+2. **Middle Earth: Shadow of Mordor**
+
+No game surprised me more than _Middle Earth: Shadow of Mordor_. From all of the preview coverage I knew right away this game was going to be good, but I had no idea that it would be this incredible. The nemesis system ( a system that creates an organic living world of orcs in your game that all remember you, have strengths, names, weaknesses) is not only a revolution in the gaming industry, it’s a system I want to see across all open world games as we move into the next generation. The game takes the Batman Arkham combat and elevates it to new heights; boasting an intricate leveling system, the game is fine-tuned and extremely responsive allowing for dynamic and engaging combat that slowly empowers the player over time. The narrative is a mixed bag, providing some strong and realistic characters but then hindering its villains. _Middle Earth: Shadow of Mordor_ is one of the best open world action adventure games in the past decade; while its narrative and length/size hindered its potential, the rest of the game is so well polished that it will be a game I will play for years to come.
+
+https://www.youtube.com/watch?v=xnXlKrBItc0
+
+1. **Dragon Age Inquisition**
+
+Unparalleled in breadth and depth, _Dragon Age Inquisition_ has little going against it. My only major criticism with the game is that it might be too large; going through all of the content takes upwards of a hundred hours and can cause your character to become seriously over leveled in some battles. That being said the only reason this is an issue is because Dragon Age Inquisition is so engaging and well-made that I want to experience every bit of content that it has to offer. Dragon battles are some of the most epic moments I have ever had in gaming. Combat, world destruction, varied environments, enemy creation Dragon Age is undeniably fun to play. While the game might get a bit too bogged down with conversations, exploring/running around the keep and managing resources, armor, the war table it all adds to the great narrative and personal stories the game has to offer. Much like _Mass Effect 2_ the game features an intricate and truly unique plot but the focus is more on creating relationships among the team along the way. The supporting cast of characters in _Dragon Age Inquisition_ are deep, well rounded and original and offer unique perspectives on a variety of real world issues. _Dragon Age Inquisition_ is my game of the year because no matter what I was doing, I couldn’t put it down; the game not only always has more content to offer and explore, but the world was so real and well told that I couldn’t help but continue to explore it. While _Dragon Age Inquisition_ definitely is not a game for everybody, fans of the genre should definitely invest their time into what is one of the greatest open world western RPG’s in the last decade.

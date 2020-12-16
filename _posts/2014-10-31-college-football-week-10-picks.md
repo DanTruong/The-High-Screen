@@ -1,0 +1,42 @@
+---
+layout: post
+categories: the-buckets-blog
+author: "Cole Frederick"
+title: "College Football Week 10 Picks"
+date: "2014-10-31"
+---
+
+Another 2-4 week against the spread. Alas. It thought it would be 3-3 after Alabama was up 27-0 against Tennessee, but the Crimson Tide took the foot off the pedal and only won by two touchdowns. I feel pretty good about picking Syracuse to cover against Clemson, but I feel just as bad for picking Washington State.
+
+It’s another massive weekend of college football, and the biggest game on Saturday will be in Oxford. Auburn and Ole Miss square off in a top four showdown, and this game will likely be an elimination game. TCU travels to Morgantown to take on West Virginia, and if the Horned Frogs win, their chances of running the table increase substantially.
+
+Before the season, who would’ve guessed Stanford at Oregon wouldn’t be the biggest Pac-12 game of this weekend? Arizona at UCLA and Utah at Arizona State both carry major Pac-12 South implications, and the latter involves two potential playoff teams.
+
+Pick 6
+
+Last Week: 2-4; Season: 5-13 (all picks against the spread only)
+
+Home team in ALL CAPS
+
+1\. Auburn (+2) at OLE MISS – The Rebels are coming off of their first loss of the season, and offensively they were exposed against LSU. Bo Wallace wasn’t on his game, and the Ole Miss offense only mustered seven points against the Tigers. The Ole Miss defense only allowed 10 points, but LSU was able to run the ball effectively throughout the game. Auburn’s defense looked average against South Carolina, but the offense is finally starting to click. The Tigers need to avoid another slow start on the road, and Nick Marshall can’t turn the ball over to the Rebels’ defense. Auburn 31, Ole Miss 23.
+
+2\. OREGON (-8) vs. Stanford – I’m all in on this Oregon team (at least for this week). They’re finally getting healthy, and Marcus Mariotta looks like a Heisman candidate. Stanford has given Oregon trouble in the past, but this is the worst Stanford team David Shaw has had in Palo Alto. Oregon 38, Stanford 20.
+
+3\. Georgia (-11) over Florida – Florida is terrible. That’s my reasoning here. This might be Muschamp’s Last Stand with the Gators, and while Todd Gurley is out again, the Bulldogs have dominated without him. Georgia 34, Florida 10.
+
+4\. Arizona (+6.5) over UCLA – Are we sure UCLA is good? The Bruins already have two losses, and they almost lost to Colorado last weekend. Arizona was impressive on the road against Washington State, and the Wildcats have to have this win if they want a chance of winning the Pac-12 championship. Arizona 41, UCLA 38.
+
+5\. Utah (+6.5) over ARIZONA STATE – This isn’t so much because I believe in Utah – the Utes are a good team – but I’m still not a believer in Arizona State. They lost 62-27 this year. Seriously. Granted, their starting quarterback was out, but losing by 35 at home is alarming. The Utes are physical enough on both sides of the ball to pick up a huge road win in the desert. Utah 34, Arizona State 31.
+
+6\. SOUTH CAROLINA (-6) over Tennessee – I saw Steve Spurrier coach in person for the first time last Saturday in Auburn. Yes, the Gamecocks lost. But it was Steve Spurrier at his best. The Head Ball Coach went for it six times on fourth down, called a successful onsides kick, and was at his best as a play-caller. It was hard to root against him. It was incredibly entertaining to watch two offensive geniuses in Spurrier and Gus Malzahn go at it for four quarters. The Gamecocks came up short, but it was enjoyable seeing Steve Spurrier at his best. It will be tough for South Carolina to rebound after last week’s close loss, but they’re up against a Tennessee team that’s been dominated in back-to-back games. South Carolina 37, Tennessee 30.
+
+Extra Points
+
+• Predictions for the rest of the ranked teams this week: Mississippi State 41, Arkansas 28; TCU 48, West Virginia 41; Kansas State 30, Oklahoma State 17; Notre Dame 33, Navy 10; Baylor 63, Kansas 20; Nebraska 42, Purdue 14; Ohio State 52, Illinois 17; Oklahoma 40, Iowa State 24; East Carolina 55, Temple 24; Pittsburgh 23, Duke 20.
+
+• Despite trailing 21-0, Florida State still defeated Louisville 42-31 on the road. It’s clear that these Seminoles aren’t as good as last year’s national title team, but they find ways to win. Jameis Winston has been unbelievable in the second halves of games this year. With the win last night, Florida State should be able to run the table and make the playoffs at 13-0.
+
+• Todd Gurley will have to miss two more games, but he’ll be back just in time for the Auburn game on Nov. 15.
+
+• If you look at ESPN college football analyst Danny Kanell’s Twitter feed after a Florida State game, you’d think [he wrote my SEC bias column yesterday.](http://www.thehighscreen.com/2014/10/sick-of-sec-bias-me-too/)
+

@@ -1,0 +1,35 @@
+---
+layout: post
+categories: the-buckets-blog
+author:"Zach Tennen"
+title: "Philadelphia 76ers' massive makeover"
+date: "2014-08-29"
+---
+
+Philadelphia found itself stuck in an unpleasant state of mediocrity after underachieving during the 2012-13 season.  The Sixers opted to send away former franchise player Andre Iguodala a year earlier in a three-way trade which landed them Andrew Bynum.  However, Bynum's ongoing knee problems prevented him from stepping on the court at all.
+
+Trading 2012 All-Star Andre Iguodala was not an easy decision.  Iggy was one of the league's exceptional leaders on and off the court, and a gold medal winning defensive specialist on the 2012 U.S. Olympic team. Iguodala averaged about fifteen points, six rebounds and five assists during his eight-year tenure with the squad. He was known as Philly's second A.I. and was one of the league's best all-around contributors during his time there.
+
+It is not to be forgotten that Sixers' former GM Tony DiLeo blew the second pick of the 2010 draft on Evan Turner. Perhaps all that blame should not lie in the hands of DiLeo, though — Turner had very high expectations, having had three years of college experience at Ohio State. But Turner's downside is the fact that he never developed great skills in one area, and despite an all-around skill set, lacking the killer basketball I.Q. to accomplish anything all that special.
+
+Sam Hinkie took over as the team's GM and started the rebuilding process at the 2013 NBA draft.  He sent All-Star Jrue Holiday to the New Orleans Pelicans for rookie Nerlens Noel and a 2014 first round pick. In addition, the Sixers selected point guard Michael Carter-Williams, who would serve as Holiday's replacement, with the 11th pick.
+
+The Allen Iverson days are long gone in the prestigious sports city of Philadelphia.  Its plans of tanking could not be made any clearer as it prepared for the 2013-14 season.  The plans went accordingly as the Sixers finished second-to-last in the NBA with a 19-63 record. That included an historic 26-game losing streak. (Ironically, the 26-game losing streak wasn't enough to beat the Milwaukee Bucks for worst record in the NBA, and neither team finished with the No. 1 overall pick after Cleveland jumped them both in the lottery.)
+
+Kansas' Joel Embiid, [the 7-foot Serge Ibaka](http://grantland.com/features/the-nba-simmons-self-mailbag/), fell to the Sixers — well, it was a stress fracture in his foot that allowed Embiid to remain on the board at No. 3. He was widely expected to be the top pick in the draft before his season-ending injury. However, with faith in its team doctors, Philly figures the reward is much greater than the risk.
+
+The Sixers also drafted a handful of other young prospects in the draft, including Dario Saric, K.J. McDaniels, Jerami Grant, and Jordan McRae. Saric, an athletic 6-10 forward from Croatia, is not expected to join the team for another year or two as he will continue to develop his game in Europe.  However, the explosive forward is thought to have a tremendous upside.
+
+This month, Hinkie sent Thaddeus Young — the lone survivor of the Doug Collins-era in Philadelphia — to the Timberwolves.  The Sixers have added Miami's 2015 first-round pick to an arsenal of future draft picks and young assets; Philly's bold set of moves over the last couple of years will likely punch a ticket to the NBA lottery for the next several years.
+
+The Sixers will, again, be content with going on ridiculous losing streaks and falling straight to the bottom of the Eastern Conference this upcoming season.  The organization may be somewhat optimistic about its future plans.  However, blowing up the entire team and starting from scratch is far from a guarantee in terms of becoming a valuable franchise in five years or so.
+
+One notable example of a scenario in which that strategy ultimately failed to work: The Kings.
+
+The 2007 offseason was the start of a dramatic roster overhaul for Sacramento.  Trading Mike Bibby to the Atlanta Hawks for a handful of small pieces was a climatic change before heading down in the dumps. Bibby was the only King that remained from their 2002 Conference Finals run. Following the 07-08 campaign, they traded Ron Artest to the Houston Rockets for a first-round pick and more players who ended up making a minimal impact. The Kings dipped to an all-time low in the 08-09 season as they finished 17-65.
+
+Since then, the organization has drafted standout college players such as Tyreke Evans, DeMarcus Cousins, Jimmer Fredette and Thomas Robinson — but has failed to groom these talents into a winning basketball product.
+
+All that being said, the Kings are in a much tougher Western Conference.  The Sixers could easily improve in the next few years due to the considerable weakness of the Eastern Conference.  But their front office has already started taking big risks: drafting Joel Embiid third was a fantastic value pick but a seven-footer with major recurring injuries is never a good sign (i.e. - Greg Oden, Andrew Bynum).
+
+The 76ers will be playing an ongoing game of hit-or-miss over the next few years.  Drafting Rookie of the Year Michael Carter-Williams in 2013 appears to have been a smart franchise move.  As I stated above, only time will tell if Joel Embiid can someday turn into a healthy and effective NBA center.  From here on out, every significant move this franchise makes will be a reflection of the direction they began heading in on the night of the 2013 NBA Draft.

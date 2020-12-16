@@ -1,0 +1,31 @@
+---
+layout: post
+categories: the-buckets-blog
+author: "Taylor Nigrelli"
+title: "NHL Tank Watch: Oct. 20th, 2014"
+date: "2014-10-20"
+---
+
+In any given NHL season, there are plenty of fun races to follow. Near the end of each season, multiple teams fight for the President’s Trophy, home-ice advantage, the last playoff spot etc.
+
+This year, in addition to those, there will be an entirely different type of race: for last place overall and thus the best odds on the first overall pick.
+
+For those who haven’t heard or don’t follow hockey very closely, the upcoming draft class is projected to be one of the best in years. While the talent pool is expected to run deep, there are two players in particular teams are after. Jack Eichel is a freshman forward for Boston University and in most years would be a consensus first overall pick-but this isn't most years. This is the year Connor McDavid, [scorer of hockey pucks and eater of worlds](https://www.youtube.com/watch?v=udhCPD4x1ek), is finally draft eligible. McDavid is the most highly-touted draft prospect since Sidney Crosby and based on his play for the Erie Otters, it’s easy to see why.
+
+McDavid and Eichel are so good, it appears they've inspired multiple teams to throw away this season in hopes of landing one of the top draft slots. At the moment, it appears six teams are intent on getting one of the two. Thus, in the weeks I don’t do power rankings, I’ll do a different type of ranking: a tank watch.
+
+**6\. Calgary:** Although the Flames are 4-3 and actually ahead of plenty of teams in the standings, they must be included here. The Flames have been out shot by 63 in the first seven games this season. They’re trotting out a lineup of good players who are too young to make much of an impact an worthless veterans like Brandon Bollig and Brian McGrattan. Jonas Hiller has been excellent so far but his save percentage won’t remain at .940. Calgary is very much still in this. And, by this, I mean the race for last, of course.
+
+**5\. Florida:** One of these years, the Panthers have to put the years of drafting in the top five to good use and finally win more than half their games (they haven’t done so since 1999-00). Jonathan Huberdeau, Aaron Ekblad and Aleksander Barkov are all young blue-chippers, ready to reverse the fortunes of one of the league’s least-successful franchises. It doesn’t appear that will happen this season. The good news is Roberto Luongo will probably be an upgrade over Tim Thomas. The bad news is the Panthers have scored all of five goals this season. Or maybe that’s the good news. One more top pick couldn’t hurt.
+
+**4\. Winnipeg:** Of all the teams on this list, the Jets have the most-talented roster. Blake Wheeler, Evander Kane, Brian Little, Dustin Byfuglien, Tobias Enstrom, Andrew Ladd…how is this team in the running? For starters, having a pretty good roster doesn’t matter if you play in the buzz-saw-doesn’t-begin-to-describe-it Central Division. Colorado, last year’s division champ, doesn’t appear to have a chance to crack the top three this year. The Jets are nearly guaranteed a sixth or seventh place finish in the division. Additionally, the team stuck with sub-par goaltender Ondrej Pavelec, despite overwhelming evidence he’s not an NHL-caliber guy. Add that to their off season of signing…no one. Yup, they have an eye on this draft. And now Kane’s hurt? They’re a player for the top pick for sure.
+
+**3\. Edmonton:** They really shouldn’t be on this list, especially not this high. The Oilers have three first overall picks on the roster, they’ve spent the past two off-seasons signing quality veterans and they made a conscious effort to put two real starting goaltenders on the roster. Yet after five games they sit last in the NHL with one point. They’ve been outscored 25-11 so far. Goalies Ben Scrivens and Viktor Fasth have been awful to this point, with a combined save percentage in the mid .800’s. They won’t be this bad all year…but what will Edmonton get out of them? And when will the scoring finally pick up. Taylor Hall, Jordan Eberle, Ryan Nugent-Hopkins, Leon Draisaitl, Nail Yakupov, David Perron…this team has too much scoring talent to consistently finish in the bottom half of the league in goals scored. That doesn’t mean they’ll win, of course. Although the Oilers have struggled for about a decade now, they’ve always been better than most teams at one thing: collecting first overall picks. Talent-wise, they should be a long shot, but never count out the Oilers in this department.
+
+**2\. Carolina:** The ‘Canes have yet to win a game so far. They’ve already lost to the Sabres, who otherwise haven’t won. They’ve lost Eric Staal, Jordan Staal, Jeff Skinner and Andrej Sekera to injury for various lengths of time. The current leading scorer is some guy named Chris Terry. It hasn’t been a great year, basically. Former Conn Smythe winner Cam Ward has been nothing short of terrible while new starter (it appears) Anton Khubodin is mostly unproven. This team is bad and unlucky. To win this race, you have to be both.
+
+**1\. Buffalo:**
+
+The Sabres have been less of a bad team over the past two seasons and more of an offense to Lord Stanley’s memory. Mike Harrington of _The Buffalo News_ compiled some of the Sabres [more gruesome statistics](http://www.buffalonews.com/sports/sabres-nhl/statistics-do-a-number-on-sabres-20141020) from the past few years. Short version: they’ve been bad. This year’s squad has already lost 6-2, 5-1 and 4-0. They’re averaging 1.2 goals per game and giving up 3.7. They’ve been out shot by 85 already. It's been ugly. Despite already beating Carolina and having more points than Edmonton, the Sabres grab the top spot. Mostly because there are no saviors on the horizon like there may be for the ‘Canes and Oilers. Sam Reinhart is headed back to juniors in all likelihood. As is Nikita Zadorov. Zemgus Girgensons is a solid two-way player, but he can only move the needle so far on his own. There are plenty of solid prospects in Rochester (where the Amerks have scored 14 goals in the first three games), but it doesn’t appear any are ready for the NHL just yet. And why rush that, anyway? There’s a race to be won here.
+
+
