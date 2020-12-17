@@ -28,7 +28,6 @@ twitter_username: thehighscreen
 facebook_username: thehighscreen
 
 # Build settings
-theme: minima
 plugins:
   - jekyll-feed
 
