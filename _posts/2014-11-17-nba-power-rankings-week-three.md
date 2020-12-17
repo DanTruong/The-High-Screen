@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "NBA Power Rankings: Week Three"
 date: "2014-11-17"
 ---

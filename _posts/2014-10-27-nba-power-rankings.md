@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "NBA Power Rankings: Philly is last, Spurs are first and every team in between."
 date: "2014-10-27"
 ---

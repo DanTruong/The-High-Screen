@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "Houston Rockets far from championship contenders"
 date: "2014-09-01"
 ---

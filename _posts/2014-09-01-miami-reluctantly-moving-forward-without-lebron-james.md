@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "Miami reluctantly moving forward without LeBron James"
 date: "2014-09-01"
 ---

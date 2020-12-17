@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "NBA Power Rankings: Week 13 — Warriors, Hawks fight for top spot"
 date: "2015-01-27"
 ---

@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "Rapid downfall of Michael Beasley"
 date: "2014-11-05"
 ---

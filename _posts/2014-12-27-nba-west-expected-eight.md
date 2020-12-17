@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "NBA West: The Expected Eight"
 date: "2014-12-27"
 ---

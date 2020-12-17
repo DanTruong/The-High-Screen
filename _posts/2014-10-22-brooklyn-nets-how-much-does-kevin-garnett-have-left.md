@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "Brooklyn Nets: How much does Kevin Garnett have left?"
 date: "2014-10-22"
 ---

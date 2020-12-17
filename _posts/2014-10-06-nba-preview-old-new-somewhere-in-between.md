@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "2015 NBA Season: The old, the new, and somewhere in between"
 date: "2014-10-06"
 ---

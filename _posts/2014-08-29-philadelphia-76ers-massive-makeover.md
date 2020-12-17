@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "Philadelphia 76ers' massive makeover"
 date: "2014-08-29"
 ---

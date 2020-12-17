@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "2014 offseason is career-defining for Derrick Rose"
 date: "2014-09-01"
 ---

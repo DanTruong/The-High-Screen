@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "L.A. Lakers: Swaggy P ready for his close-up."
 date: "2014-09-22"
 ---

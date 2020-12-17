@@ -1,7 +1,7 @@
 ---
 layout: post
 categories: the-buckets-blog
-author:"Zach Tennen"
+author: "Zach Tennen"
 title: "Against all odds: Channing Frye continues to build on to a successful NBA career"
 date: "2014-09-01"
 ---
