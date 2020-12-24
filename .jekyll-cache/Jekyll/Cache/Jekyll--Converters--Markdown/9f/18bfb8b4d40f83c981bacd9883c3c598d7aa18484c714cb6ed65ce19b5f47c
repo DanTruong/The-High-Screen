@@ -1,0 +1,49 @@
+I"�<p><em>(The High Screen is running a novice’s guide to advanced statistical analysis in sports in the form of a 10-part series<a href="http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/">. Part I</a> was an introduction to the series. <a href="http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-ii-baseball/">Part II</a> covered Baseball. <a href="http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-three-basketball/">Part III</a> covered basketball. <a href="http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-iv-hockey/">Part IV</a> covered hockey. Part V was a <a href="http://www.thehighscreen.com/2015/03/novices-guide-advanced-stats-part-v-qa-matthew-coller/">Q+A with Matthew Coller</a>)</em></p>
+
+<p>Football is America’s most popular sport and it isn’t particularly close at the moment. This is partly because of routine – American’s spend their Sunday’s and Monday nights cheering on their favorite teams and rolling their eyes at less-than-insightful color commentators (looking at you, Phil Simms).</p>
+
+<p>But another reason for football’s steady increase in popularity is gambling, <a href="http://www.forbes.com/fdc/welcome_mjx.shtml">specifically fantasy football</a>. Every year millions of Americans draft a team of NFL players, whose stats they put up against the stats of an opponent’s group of players. This has created a stats-centric conversation surrounding football. “Dez Bryant had two touchdowns today, Drew Brees passed for 5000 yards last year, I need Frank Gore to get at least 100 yards and a touchdown tonight.”</p>
+
+<p>But being a good fantasy player isn’t the same as being a good real-life player and traditional stats aren’t always predictive of future success or failure.</p>
+
+<p>Advanced stats can be a hard sell to football fans. Anyone who’s played the game knows stats will never be able to capture the game the way they do for <a href="http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-ii-baseball/">baseball</a>. There’s so much that’s difficult to quantify – the ability to block, a receiver’s ability to run routes, intimidation and physicality factors. But this doesn’t mean stats can’t tell us anything about football. In fact, they can tell us a great deal.</p>
+
+<p>Much like the other three major sports, plenty of websites have popped up over the past decade measuring advanced football statistics. I would argue that none have more important than <a href="http://www.footballoutsiders.com/">Football Outsiders</a> and <a href="https://www.profootballfocus.com/">Pro Football Focus</a>.</p>
+
+<p>Football Outsiders, which was started by Aaron Schatz in 2003, bases much of its content on some of the site’s self-made stats. Not unlike analytics sites for other sports, Football Outsiders seeks answers that aren’t provided by traditional stats. They recognize that there are a variety of factors that determine a team or player’s statistical success.</p>
+
+<p>It often goes unnoticed how dependent on a team or opponent a player’s stats are. Two running backs have 100-yards in a game, there are a variety of factors that go into determining which performance was more impressive. Which team had a better offensive line? Which team had a better defensive line? How many carries did each get? How did each team fare – did both teams win or lose? How healthy was the opposing defense? Football Outsiders tries to even the playing field through statistical analysis.</p>
+
+<p>One of the site’s most commonly-used and versatile stats is <a href="http://www.footballoutsiders.com/info/methods#dvoa">DVOA</a>.</p>
+
+<p>(I should note that DVOA isn’t entirely a Football Outsiders creation, it was adapted from a statistic in <a href="http://www.amazon.com/The-Hidden-Game-Football-Carroll/dp/0446514144"><em>The Hidden Game of Football</em>.</a>)</p>
+
+<p><strong>DVOA –</strong> It stands for defense-adjusted value over average. The stat judges each play in an NFL season based on both total yards and yards toward a first down. According to Football Outsider’s explanation of the stat, a play is considered a success if it ends up with 45 percent of the yards needed for a first down, 60 percent on second down and nothing less than a first down on third and fourth down. A “successful play” gets one point, a play of no gain gets zero points and everything in-between is assigned fractional points. Longer plays are assigned more points while plays that end with a loss of yards get assigned negative points.</p>
+
+<p>The success of each play is then compared to average success of players in similar situations, adjusting for game situation variables. Then, you can compare DVOA on team and player levels. Teams are compared to other teams, players to other players at their positions. This is further enhanced by adjusting for opponent’s defensive strengths or weaknesses.</p>
+
+<p>The numbers are then normalized to zero percent. The average team will have a DVOA of zero percent while good offensive teams will have a positive DVOA and bad teams will have a negative one. The opposite will go for defense.</p>
+
+<p>DVOA is far from the only stat Football Outsiders considers, but it is likely the most prominent and important. Football stats can so easily be skewed but DVOA adjusts for nearly any situation, taking away nearly every variable.</p>
+
+<p>At any time, you can open up Football Outsiders on your computer and go to the “team stats” tab and see the team’s ranked by their <a href="http://www.footballoutsiders.com/stats/teamoff">offensive</a> and <a href="http://www.footballoutsiders.com/stats/teamdef">defensive</a> DVOA. For my money, there’s no better indication of a team’s ability than DVOA. You’d be hard pressed to find a better example of the triumph of advanced statistical analysis.</p>
+
+<p><strong>Pro Football Focus:</strong></p>
+
+<p>Unlike Football Outsiders, you cannot type Pro Football Focus in your browser and see the fruits of their labor. You have to pay for that kind of entertainment (PFF’s “premium stats” are for subscribers only).</p>
+
+<p>But PFF has done a good enough job analyzing football over the past decade to build a solid base of subscribers. It’s not an analytics site in the traditional sense – much of its most popular work actually features breaking down game film. However, this is important to the analytics movement – a marriage of stats and the often-discussed eye test. Most importantly, PFF breaks down every play of every game.</p>
+
+<p>A PFF analyst watches a game’s film and assigns each player a grade between negative two and two based on that player’s success in executing that play. This is done for each player on each play for each game. Some positions, such as offensive line are graded twice, on both run blocking and pass protecting.</p>
+
+<p>Each player receives a final grade, where zero is meant to be the average.</p>
+
+<p>PFF may not be an analytics site in the manner Football Outsiders is, but it operates under the same basic principle: traditional football statistics are flawed and need context and adjustment to really mean anything.</p>
+
+<p> </p>
+
+<p>There are obviously more websites out there that measure advanced NFL statistics. The internet is filled with dozens of websites where people do quality work on this subject. But PFF’s grades and Football Outsider’s DVOA gives a beginner an idea of the mindset behind studying advanced NFL stats.</p>
+
+<p>Until next time.</p>
+
+:ET
