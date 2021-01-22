@@ -6,7 +6,7 @@ author: "Ross Bentley"
 date: "2014-10-21"
 ---
 
-\[caption id="attachment\_1319" align="alignnone" width="300"\][![(Adam Glanzman/Daily)](images/Pitino-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Pitino.jpg) Rick Pitino. (Adam Glanzman/Daily)\[/caption\]
+\[caption id="attachment\_1319" align="alignnone" width="300"\][![(Adam Glanzman/Daily)](/img/Pitino-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Pitino.jpg) Rick Pitino. (Adam Glanzman/Daily)\[/caption\]
 
  
 

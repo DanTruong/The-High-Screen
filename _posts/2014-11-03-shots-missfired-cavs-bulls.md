@@ -6,7 +6,7 @@ author: "Joe Mags"
 date: "2014-11-03"
 ---
 
-\[caption id="attachment\_1590" align="aligncenter" width="500"\][![Artwork by Jake Morin.](images/Morin.LeBron.Rose_-300x168.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Morin.LeBron.Rose_-e1414957916960.jpg) Artwork by Jake Morin.\[/caption\]
+\[caption id="attachment\_1590" align="aligncenter" width="500"\][![Artwork by Jake Morin.](/img/Morin.LeBron.Rose_-300x168.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Morin.LeBron.Rose_-e1414957916960.jpg) Artwork by Jake Morin.\[/caption\]
 
  
 

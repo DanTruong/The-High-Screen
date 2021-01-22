@@ -6,7 +6,7 @@ title: "Sick of SEC Bias? Me too. "
 date: "2014-10-30"
 ---
 
-\[caption id="attachment\_1539" align="alignnone" width="300"\][![ESPN launched the SEC Network in anticipation of College Football's first playoff season. As the country is divided between SEC friends and foes, it is difficult to remember why we watch the games in the first place — that sports are fun. (Official logo of ESPN/SEC Network)](images/SEC_Network_logo.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/SEC_Network_logo.jpg) ESPN launched the SEC Network in anticipation of College Football's first playoff season. As the country is divided between SEC friends and foes, it is difficult to remember why we watch the games in the first place — that sports are fun. (Official logo of ESPN/SEC Network)\[/caption\]
+\[caption id="attachment\_1539" align="alignnone" width="300"\][![ESPN launched the SEC Network in anticipation of College Football's first playoff season. As the country is divided between SEC friends and foes, it is difficult to remember why we watch the games in the first place — that sports are fun. (Official logo of ESPN/SEC Network)](/img/SEC_Network_logo.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/SEC_Network_logo.jpg) ESPN launched the SEC Network in anticipation of College Football's first playoff season. As the country is divided between SEC friends and foes, it is difficult to remember why we watch the games in the first place — that sports are fun. (Official logo of ESPN/SEC Network)\[/caption\]
 
  
 

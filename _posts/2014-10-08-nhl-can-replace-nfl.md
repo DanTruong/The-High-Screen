@@ -24,7 +24,7 @@ Many people after watching their first game are hooked, and that is exactly wha
 
 That was the NFL's recipe of success for DECADES: gobble up millions and millions of casual fans and guilt trip anyone left on the periphery to join in and buy a jersey!
 
-\[caption id="attachment\_1064" align="alignnone" width="300"\][![Players like Sidney Crosby and Marc-André Fleury are bringing much needed popularity back to NHL. (Photo taken by Michael Righi)](images/3637923651_5bd6e470dc_b-300x233.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/3637923651_5bd6e470dc_b.jpg) Players like Sidney Crosby and Marc-André Fleury are bringing much needed popularity back to NHL.  
+\[caption id="attachment\_1064" align="alignnone" width="300"\][![Players like Sidney Crosby and Marc-André Fleury are bringing much needed popularity back to NHL. (Photo taken by Michael Righi)](/img/3637923651_5bd6e470dc_b-300x233.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/3637923651_5bd6e470dc_b.jpg) Players like Sidney Crosby and Marc-André Fleury are bringing much needed popularity back to NHL.  
 (Photo taken by Michael Righi)\[/caption\]
 
  

@@ -6,7 +6,7 @@ title: "Straight out of Fayetteville: J Cole chronicles his (and our) journey in
 date: "2014-12-12"
 ---
 
-\[caption id="attachment\_2053" align="aligncenter" width="630"\][![Jcole](images/Jcole.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/Jcole.jpg) (Photo provided by [Flickr-Brandon Shigeta](https://www.flickr.com/photos/brandonshigeta/7841373506/in/photolist-cWV69W-8SNxMK-9mSdnc-jZSyqF-9mSdui-9mVhBy-4VGd7u-jZSHYt-jZToQK-jZV1vG-jZV6W1-jZSwhn-jZSBYT-jZTisF-jZSGq8-jZTmFz-jZStd6-jZSBE6-jZTtjp-jZVg1y-jZSELB-jZTsCV-jZV2pq-jZSzVK-jZTz1K-jZV9ps-jZTv9B-jZV3ns-jZV3UQ-jZTkn2-jZVd2Y-jZVbdN-4Z9XiX-jZVabY-pbrLXv-jZTydx-4o3T33-7qfSSp-6xgZJc-5FK6hV-Mw7zc-MvYzN-atsqGF-atsqGK-atsqGP-atsqGD-atsqGv-atsqGk-atsu8p-atsu8x))\[/caption\]
+\[caption id="attachment\_2053" align="aligncenter" width="630"\][![Jcole](/img/Jcole.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/Jcole.jpg) (Photo provided by [Flickr-Brandon Shigeta](https://www.flickr.com/photos/brandonshigeta/7841373506/in/photolist-cWV69W-8SNxMK-9mSdnc-jZSyqF-9mSdui-9mVhBy-4VGd7u-jZSHYt-jZToQK-jZV1vG-jZV6W1-jZSwhn-jZSBYT-jZTisF-jZSGq8-jZTmFz-jZStd6-jZSBE6-jZTtjp-jZVg1y-jZSELB-jZTsCV-jZV2pq-jZSzVK-jZTz1K-jZV9ps-jZTv9B-jZV3ns-jZV3UQ-jZTkn2-jZVd2Y-jZVbdN-4Z9XiX-jZVabY-pbrLXv-jZTydx-4o3T33-7qfSSp-6xgZJc-5FK6hV-Mw7zc-MvYzN-atsqGF-atsqGK-atsqGP-atsqGD-atsqGv-atsqGk-atsu8p-atsu8x))\[/caption\]
 
 ## J. Cole wears jeans and a tee-shirt for his concerts.
 
@@ -32,7 +32,7 @@ What remains when you accidentally wash your shirt in hot water and the Nike sym
 
  
 
-\[caption id="attachment\_2054" align="aligncenter" width="630"\][![JcoleConcert](images/JcoleConcert.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/JcoleConcert.jpg) (Photo provided by [Flickr-H D](https://www.flickr.com/photos/hdiep/5486859699/in/photolist-9mRAei-9mRAna-7oxvB6-oU3gN2-7oxpMT-7oBjqG-6xh2QM-6xh3yR-6W5WBb-6HD3eJ-7oxvZV-6xh4kk-62RcUS-6xmfAY-MvYpS-bCceCS-5XGo8d-7oBvFQ-8nzSe9-no5Do9-dTdHhP-bst3d9-gt8aw-5WPs1G-btg9rq-5z1mJY-dWESVi-bv8HPq-bv8HLA-bv8HX3-bJ3vr4-bv8HSG-dRpwmM-5mRw6C-9AfyN9-gqwusc-e6Unjy-98giQH-5vyvEo-7oxBCn-7qfJuZ-gqwd4F-7qjEJd-7qjFbm-4WJMji-7qfTs8-7qfRLZ-7oxBS2-7qjFDU-7qjHRW))\[/caption\]
+\[caption id="attachment\_2054" align="aligncenter" width="630"\][![JcoleConcert](/img/JcoleConcert.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/JcoleConcert.jpg) (Photo provided by [Flickr-H D](https://www.flickr.com/photos/hdiep/5486859699/in/photolist-9mRAei-9mRAna-7oxvB6-oU3gN2-7oxpMT-7oBjqG-6xh2QM-6xh3yR-6W5WBb-6HD3eJ-7oxvZV-6xh4kk-62RcUS-6xmfAY-MvYpS-bCceCS-5XGo8d-7oBvFQ-8nzSe9-no5Do9-dTdHhP-bst3d9-gt8aw-5WPs1G-btg9rq-5z1mJY-dWESVi-bv8HPq-bv8HLA-bv8HX3-bJ3vr4-bv8HSG-dRpwmM-5mRw6C-9AfyN9-gqwusc-e6Unjy-98giQH-5vyvEo-7oxBCn-7qfJuZ-gqwd4F-7qjEJd-7qjFbm-4WJMji-7qfTs8-7qfRLZ-7oxBS2-7qjFDU-7qjHRW))\[/caption\]
 
 Telling us where they came from is commonplace for any hip-hop artist we listen to. There may not be a more regional musical genre than rap music, nor an artistic movement so subjective as hip-hop, and for any creative person working in these fields, the process of (a) where you've been and (b) how it got you there is essential to being heard — to being authentic.
 

@@ -6,7 +6,7 @@ title: "Weekly Recap: Constantine's A Feast of Friends"
 date: "2014-11-18"
 ---
 
-\[caption id="attachment\_1880" align="aligncenter" width="500"\][![Matt Ryan as Constantine -- (Photo by: Tina Rowden/NBC)](images/constantineEP4.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/constantineEP4.jpg) Matt Ryan as Constantine -- (Photo by: Tina Rowden/NBC)\[/caption\]
+\[caption id="attachment\_1880" align="aligncenter" width="500"\][![Matt Ryan as Constantine -- (Photo by: Tina Rowden/NBC)](/img/constantineEP4.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/constantineEP4.jpg) Matt Ryan as Constantine -- (Photo by: Tina Rowden/NBC)\[/caption\]
 
 _Warning: Spoilers of the fourth episode of Constantine below_
 

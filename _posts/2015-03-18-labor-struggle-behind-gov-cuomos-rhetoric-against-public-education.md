@@ -26,7 +26,7 @@ The present tension between NYSUT and Gov. Cuomo is an example of the precise ty
 
 That Gov. Cuomo does not seem interested in compromising with NYSUT, now this is where we can find fault in him.
 
-\[caption id="attachment\_2698" align="alignright" width="640"\][![Andrew Cuomo. (Photo provided by  Diana Robinson)](images/14316512841_9e69101089_z.jpg)](http://www.flickr.com/photos/dianasch/14316512841/in/photolist-nP6Sui-dHsEWc-mYCSDF-fU9aaL-mYCmxa-btPEbj-fTGNFu-fTGHj6-btPDVA-bGJuST-btPH8m-btPFGL-btPFyq-btPFby-bGJusK-bGJv9n-btPFSy-bCx2S6-bCwZF6-bCx4Xx-bpC7dC-bCx6ux-bCx4b4-bCwXvr-bCwWjp-bpC9e1-bCx28r-bpC4Uq-bpC1nW-bpC2Hw-fU9YXT-fU9Zt2-fU95Wq-btPEmw-bGJsh6-btPEy5-btPGpj-bGJtDx-bGJt24-btQcVm-fUaafB-fUa7BE-fU98iZ-fUacv9-fUa5TF-fU9dVa-fUazLP-fUarzD-fUa5hS-fUa2pg) Andrew Cuomo. (Photo provided by Diana Robinson)\[/caption\]
+\[caption id="attachment\_2698" align="alignright" width="640"\][![Andrew Cuomo. (Photo provided by  Diana Robinson)](/img/14316512841_9e69101089_z.jpg)](http://www.flickr.com/photos/dianasch/14316512841/in/photolist-nP6Sui-dHsEWc-mYCSDF-fU9aaL-mYCmxa-btPEbj-fTGNFu-fTGHj6-btPDVA-bGJuST-btPH8m-btPFGL-btPFyq-btPFby-bGJusK-bGJv9n-btPFSy-bCx2S6-bCwZF6-bCx4Xx-bpC7dC-bCx6ux-bCx4b4-bCwXvr-bCwWjp-bpC9e1-bCx28r-bpC4Uq-bpC1nW-bpC2Hw-fU9YXT-fU9Zt2-fU95Wq-btPEmw-bGJsh6-btPEy5-btPGpj-bGJtDx-bGJt24-btQcVm-fUaafB-fUa7BE-fU98iZ-fUacv9-fUa5TF-fU9dVa-fUazLP-fUarzD-fUa5hS-fUa2pg) Andrew Cuomo. (Photo provided by Diana Robinson)\[/caption\]
 
 On Friday, Feb. 27, I was granted an opportunity to talk with Carl Korn, NYSUT’s Press Secretary for Public Relations, about Gov. Cuomo’s education reforms. We talked in the morning over the phone.The day was warmer than the rest of the month had been; February — this winter, really — has been particularly harsh.The vivid sun, rising toward the afternoon, graciously complimented Korn's impassioned voice.
 
@@ -44,7 +44,7 @@ According to Gov. Cuomo, any failure of public schools is attributable to teache
 
 This is not true, but this is the Governor’s rhetoric.
 
-\[caption id="attachment\_2699" align="aligncenter" width="706"\][![Caricature: Andrew Cuomo worried about the future. (Art provided by  DonkeyHotey)](images/15734678354_f932bd224d_b.jpg)](http://www.flickr.com/photos/donkeyhotey/15734678354) Caricature: Andrew Cuomo worried about the future. (Art provided by DonkeyHotey)\[/caption\]
+\[caption id="attachment\_2699" align="aligncenter" width="706"\][![Caricature: Andrew Cuomo worried about the future. (Art provided by  DonkeyHotey)](/img/15734678354_f932bd224d_b.jpg)](http://www.flickr.com/photos/donkeyhotey/15734678354) Caricature: Andrew Cuomo worried about the future. (Art provided by DonkeyHotey)\[/caption\]
 
 I mentioned before that the mission statement of the Progressive National Convention was: “To destroy \[the\] invisible government, to dissolve the unholy alliance between corrupt business and corrupt politics.” Gov. Cuomo’s alliance of state interests with business interests is reminiscent to the invisible government that the Progressive Party stood in opposition against. When business interests threaten to dismantle the citadel that public education strives to construct for the people, then opposition to the goals of private business must once again be established. Behind the Governor’s rhetoric, which condemns teachers, NYSUT and public education, there is a labor struggle unfolding.
 

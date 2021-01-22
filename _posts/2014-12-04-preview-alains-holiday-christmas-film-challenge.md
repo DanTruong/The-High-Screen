@@ -6,7 +6,7 @@ title: "Alain's Holiday Cheer: A Film Challenge — Preview"
 date: "2014-12-04"
 ---
 
-[![Clapper board with Santa's hat on it isolated on white](images/AlainsHolidayCheer.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/AlainsHolidayCheer.jpg)
+[![Clapper board with Santa's hat on it isolated on white](/img/AlainsHolidayCheer.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/AlainsHolidayCheer.jpg)
 
 It’s not very often a person can find something they can call their “thing.” I’m sure when LeBron James dunked for the first time, at the age of 6 (Okay, okay... [he was in 8th grade](http://espn.go.com/blog/truehoop/miamiheat/post/_/id/5266/the-first-time-lebron-dunked-a-basketball)), he knew basketball was his thing. For me, I’m not sure when it happened exactly, but something incredibly special became my thing: Christmas.
 
@@ -22,7 +22,7 @@ It’s for this reason exactly I’ll be doing a movie challenge this month. I d
 
 I plan to get to the bottom of Christmas, but I’m going to do it in a few different ways.
 
-[![Cheerful Aged Santa Posing With A Clapperboard](images/Cheerful-Aged-Santa-Posing.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/Cheerful-Aged-Santa-Posing.jpg)
+[![Cheerful Aged Santa Posing With A Clapperboard](/img/Cheerful-Aged-Santa-Posing.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/Cheerful-Aged-Santa-Posing.jpg)
 
 **My Childhood **
 

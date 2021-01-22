@@ -6,7 +6,7 @@ author: "Joe Mags"
 date: "2014-10-20"
 ---
 
-\[caption id="attachment\_1257" align="alignleft" width="212"\][![(Image by geter86.deviantart.com)](images/Drake.sketch-212x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Drake.sketch-e1413658108331.jpg) (Image by geter86.deviantart.com)\[/caption\]
+\[caption id="attachment\_1257" align="alignleft" width="212"\][![(Image by geter86.deviantart.com)](/img/Drake.sketch-212x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Drake.sketch-e1413658108331.jpg) (Image by geter86.deviantart.com)\[/caption\]
 
 Basketball and hip-hop have long been intertwined culturally. And so it is with great irony I suggest Drake won the Raptors the Atlantic Division last season.
 
@@ -24,7 +24,7 @@ http://www.youtube.com/watch?v=GxgqpCdOKak
 
 By the time Nothing _Was The Same_ was released in September — alongside perhaps the best song off the album, ["Furthest Thing,"](http://www.youtube.com/watch?v=WozERhq0_gk) which brilliantly captures the changing of the seasons: summer to fall; _Yeezus_ (and the others) to Drake — the prophecy was written out. Kanye wouldn't [mass publish it until July](http://www.gq.com/entertainment/celebrities/201408/kanye-west?currentPage=1), but Drake won the summer of 2013, and the year 2013 — Drizzy is on top.
 
-\[caption id="attachment\_1259" align="aligncenter" width="620"\][![(Photo taken by michalkajzerek)](images/Lowry.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Lowry.jpg) Kyle Lowry had the best argument for being an All-Star snub in 2014. Chances are the East will Take Care — oh yeah, I went there — of him on the 2015 team. (Photo taken by michalkajzerek)\[/caption\]
+\[caption id="attachment\_1259" align="aligncenter" width="620"\][![(Photo taken by michalkajzerek)](/img/Lowry.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Lowry.jpg) Kyle Lowry had the best argument for being an All-Star snub in 2014. Chances are the East will Take Care — oh yeah, I went there — of him on the 2015 team. (Photo taken by michalkajzerek)\[/caption\]
 
  
 

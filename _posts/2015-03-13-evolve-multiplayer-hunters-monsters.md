@@ -14,7 +14,7 @@ It’s not fair to fault _Evolve_ for not having a single player experience; the
 
 The actual game modes themselves are engaging. Hunt, as the flagship mode, finds our four hunters scouring after the monster across one of the games 12 maps. By far the most balanced mode, Hunt stays fresh after hours of play because the variety of match combinations in terms of the monster hunted, the map played on, and which four of the 12 hunters are paired together.
 
-\[caption id="attachment\_2676" align="alignleft" width="620"\][![Evolve's Behemoth. (Photo provided by evolvegame.ru)](images/evolve-1-1024x576.jpg)](http://evolvegame.ru/_nw/3/34923552.jpg) Evolve's Behemoth. (Photo provided by evolvegame.ru)\[/caption\]
+\[caption id="attachment\_2676" align="alignleft" width="620"\][![Evolve's Behemoth. (Photo provided by evolvegame.ru)](/img/evolve-1-1024x576.jpg)](http://evolvegame.ru/_nw/3/34923552.jpg) Evolve's Behemoth. (Photo provided by evolvegame.ru)\[/caption\]
 
 Nest and Rescue change the experience by making the Monster a secondary objective; in Nest the hunter team must destroy six monster eggs, which can all be hatched to produce a small minion, while the Monster attempts to last 10 minutes without all eggs being destroyed. Rescue finds our hunters attempting to save five downed colonists while the monster must kill five colonists, and the first to accomplish this wins. Defend, unlike the other game modes, starts the monster at level 3 and provides the monster with 2 respawning minions (level 1 monsters) and then has the Monster attempting to destroy an evacuation ship before time runs out.
 

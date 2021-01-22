@@ -22,7 +22,7 @@ Notre Dame obliterated Michigan, Northwestern lost to Northern Illinois and Cent
 
 Luckily for college football fans, this is probably the last week we’ll hear about the Big 10 for some time.
 
-\[caption id="attachment\_652" align="alignnone" width="620"\][![](images/bigstock-Sanford-Stadium-20494433-1024x679.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/bigstock-Sanford-Stadium-20494433.jpg) Georgia is really good. South Carolina has looked very bad. And yet... Couldn't Steve Spurrier find a way to pull out a huge victory on Saturday?\[/caption\]
+\[caption id="attachment\_652" align="alignnone" width="620"\][![](/img/bigstock-Sanford-Stadium-20494433-1024x679.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/bigstock-Sanford-Stadium-20494433.jpg) Georgia is really good. South Carolina has looked very bad. And yet... Couldn't Steve Spurrier find a way to pull out a huge victory on Saturday?\[/caption\]
 
 Week Three of the college football season includes the first SEC on CBS game of the year — another chance for Bob Stoops to beat a SEC team (and probably talk about it for a year).
 

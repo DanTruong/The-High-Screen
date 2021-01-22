@@ -284,7 +284,7 @@ In the frontcourt, Pierre will need assistance from big man Jalen Robinson who w
 
 Miller play’s as many as 11 guys and expects everyone to come in and contribute. This year he has plenty of capable options to turn too with Sibert and Pierre continuing to be two of the better players in the Atlantic-10.
 
-\[caption id="attachment\_1766" align="alignleft" width="300"\][![Shaka Smart. (Photo from Wikipedia, eligible for re-use, CC)](images/Shaka_Smart_at_UVA-300x282.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Shaka_Smart_at_UVA-e1415722049802.jpg) Shaka Smart. (Photo from Wikipedia, eligible for re-use, CC)\[/caption\]
+\[caption id="attachment\_1766" align="alignleft" width="300"\][![Shaka Smart. (Photo from Wikipedia, eligible for re-use, CC)](/img/Shaka_Smart_at_UVA-300x282.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Shaka_Smart_at_UVA-e1415722049802.jpg) Shaka Smart. (Photo from Wikipedia, eligible for re-use, CC)\[/caption\]
 
 **1\. [VCU Rams](http://www.pickinsplinters.com/?p=39172)**
 

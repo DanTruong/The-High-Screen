@@ -14,7 +14,7 @@ The people who identify themselves within the conservative, christian, religious
 
 When people want to talk about nihilism, do they really want to talk about it with Glenn Beck? The feelings of despair and fatigue that lead me sometimes toward a nihilistic attitude will never be assuaged by Glenn Beck, for the same reason that these same feelings were probably not entirely assuaged in peasants living in the middle ages by the priests of their regions.
 
-\[caption id="attachment\_973" align="alignright" width="239"\][![Glenn Beck is a man of many messages. So when he critiques the art of Jay Z and TV's finest auteurs, what is actually motivating him?   (Photo taken by David Shankbone)](images/Glenn-Beck-239x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Glenn-Beck.jpg) Glenn Beck is a man of many messages. So when he critiques the art of Jay Z and TV's finest auteurs, what is actually motivating him?  
+\[caption id="attachment\_973" align="alignright" width="239"\][![Glenn Beck is a man of many messages. So when he critiques the art of Jay Z and TV's finest auteurs, what is actually motivating him?   (Photo taken by David Shankbone)](/img/Glenn-Beck-239x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Glenn-Beck.jpg) Glenn Beck is a man of many messages. So when he critiques the art of Jay Z and TV's finest auteurs, what is actually motivating him?  
 (Photo taken by David Shankbone)\[/caption\]
 
 When we talk about nihilism, what are we talking about? Glenn Beck’s video is almost entirely concerned with pop-nihilism — with nihilistic messages that are sent to people who have the time, and apparently the extra money, to receive them from HBO. Pop-nihilism and nihilism are not topics of the same conversation.

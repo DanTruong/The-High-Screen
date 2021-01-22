@@ -26,7 +26,7 @@ Right now the online matchmaking servers are terrible; there is no way to back o
 
 In Breakout, being down 4-2 or 4-3 from the get-go is a death sentence; there is almost nothing your team can do to pull of the win, but you still lose rank for losing the match. It is extremely frustrating to lose rank when there was no way you could have won the game. The servers and matchmaking need to go through drastic improvements to be ready for the full game launch.
 
-\[caption id="attachment\_2362" align="aligncenter" width="620"\][![(Photo provided by 343 Industries via Halo 5: Guardians Beta)](images/halo5-beta-empire-overwatch.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/halo5-beta-empire-overwatch.jpg) (Photo provided by 343 Industries via Halo 5: Guardians Beta)\[/caption\]
+\[caption id="attachment\_2362" align="aligncenter" width="620"\][![(Photo provided by 343 Industries via Halo 5: Guardians Beta)](/img/halo5-beta-empire-overwatch.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/halo5-beta-empire-overwatch.jpg) (Photo provided by 343 Industries via Halo 5: Guardians Beta)\[/caption\]
 
 While I love what the ranking system is bringing to the table, there are definitely problems with it. Once a rank is achieved (silver, onyx) you can’t lose it. This means that players who got lucky or hot through their initial qualifying games will get a high rank and never lose it. Players can bottom at gold 1 but they will never drop to silver no matter how poorly they play. This makes the game very difficult to play solo. I head into matchmaking paired with a team of rank equal to my own, but it’s hit or miss whether they will be good or absolutely terrible.
 

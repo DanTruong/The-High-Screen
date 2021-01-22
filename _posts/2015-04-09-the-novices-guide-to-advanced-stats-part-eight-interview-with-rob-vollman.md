@@ -14,7 +14,7 @@ Vollman has released two books in as many years titled “[Hockey Abstract.](htt
 
 So, I thought he’d be a perfect candidate for a question and answer exchange. I can’t think of anyone more qualified.
 
-[![vollman](images/vollman-230x300.png)](http://www.hockeyabstract.com/)
+[![vollman](/img/vollman-230x300.png)](http://www.hockeyabstract.com/)
 
 Q: How long have you have been analyzing hockey, statistically or non-statistically?
 

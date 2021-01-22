@@ -6,7 +6,7 @@ title: "The Leftovers is worth watching, even when it’s hard to watch"
 date: "2014-09-01"
 ---
 
-\[caption id="attachment\_354" align="alignnone" width="400"\][![Leftovers](images/Leftovers.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Leftovers.jpg) (Photo provided by HBO)\[/caption\]
+\[caption id="attachment\_354" align="alignnone" width="400"\][![Leftovers](/img/Leftovers.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Leftovers.jpg) (Photo provided by HBO)\[/caption\]
 
 The planet hit 6 billion people in 1999, just a couple months before the new millennium. A dozen years later and there were 7 billion people living on Earth.
 

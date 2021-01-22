@@ -40,7 +40,7 @@ For a while, it seemed like Nashville had the trophy locked up. Then a six-game 
 
 **Verdict:** The Lightning are good enough to win the President’s Trophy this year and compete for it every year for the next decade.
 
-\[caption id="attachment\_2679" align="alignright" width="640"\][![Tavares, Crosby. (Photo provided by  Mike Durkin)](images/5309465811_7158fdc122_z.jpg)](http://www.flickr.com/photos/madmiked/5309465811/in/photolist-9e7nno-9e7xmm-qdLJcx-qJ2nXM-9e7aSh-9e4dLF-96rNXT-bu99KJ-96uLZW-96uGsb-96rGSX-96erz5-96bpcZ-9e7dou-9e4abz-9e7tc9-9e7hpf-jnFSGP-jnHmTK-jnLiPW-9e4mgg-9e4fNk-9e7jMf-9e49Wg-9e4mu4-9e7xNW-9e7rso-9e4j5D-9e4fCP-9e4sST-9e4kLD-9e7pnJ-9e7oQ1-9e4jWz-9e7gXf-9e48TX-9e4gwB-9e7jW7-9e4bNK-9e4cUk-9e7vTy-9e7vmf-9e4nZ4-9e4832-9e4rJK-9e49Hr-9e4gYV-9e4eCn-9e48wi-9e7cmf) Tavares, Crosby. (Photo provided by Mike Durkin)\[/caption\]
+\[caption id="attachment\_2679" align="alignright" width="640"\][![Tavares, Crosby. (Photo provided by  Mike Durkin)](/img/5309465811_7158fdc122_z.jpg)](http://www.flickr.com/photos/madmiked/5309465811/in/photolist-9e7nno-9e7xmm-qdLJcx-qJ2nXM-9e7aSh-9e4dLF-96rNXT-bu99KJ-96uLZW-96uGsb-96rGSX-96erz5-96bpcZ-9e7dou-9e4abz-9e7tc9-9e7hpf-jnFSGP-jnHmTK-jnLiPW-9e4mgg-9e4fNk-9e7jMf-9e49Wg-9e4mu4-9e7xNW-9e7rso-9e4j5D-9e4fCP-9e4sST-9e4kLD-9e7pnJ-9e7oQ1-9e4jWz-9e7gXf-9e48TX-9e4gwB-9e7jW7-9e4bNK-9e4cUk-9e7vTy-9e7vmf-9e4nZ4-9e4832-9e4rJK-9e49Hr-9e4gYV-9e4eCn-9e48wi-9e7cmf) Tavares, Crosby. (Photo provided by Mike Durkin)\[/caption\]
 
 **New York Islanders: 69 Games, 90 Points**
 

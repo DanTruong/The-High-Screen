@@ -6,7 +6,7 @@ title: "Brooklyn Nets: How much does Kevin Garnett have left?"
 date: "2014-10-22"
 ---
 
-\[caption id="attachment\_1342" align="alignnone" width="300"\][![(Photo taken by Cliff)](images/Garnett-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Garnett.jpg) (Photo taken by Cliff)\[/caption\]
+\[caption id="attachment\_1342" align="alignnone" width="300"\][![(Photo taken by Cliff)](/img/Garnett-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Garnett.jpg) (Photo taken by Cliff)\[/caption\]
 
  
 

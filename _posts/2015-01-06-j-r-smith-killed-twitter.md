@@ -32,7 +32,7 @@ Through sheer willpower and want-to, the gravity of this moment in Smith's care
 
 We're all proud of you, J.R., truly, madly, deeply. But please, don't break Twitter again. It scared me.
 
-**Joe Mags [![JoeMags](images/JoeMags.AwardWinner-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/JoeMags.AwardWinner.jpg)**
+**Joe Mags [![JoeMags](/img/JoeMags.AwardWinner-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/JoeMags.AwardWinner.jpg)**
 
  
 
@@ -54,7 +54,7 @@ The Knicks get.. well they get [three players they already know they want to wai
 
 But the landmark of this deal is how shocking it was; not even Twitter could handle it. If you honestly say you saw this trade coming, please put an application in with ESPN and put me down as a reference.
 
-**Alain Pierre-Lys **[![Alain](images/Alain-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/Alain.jpg)
+**Alain Pierre-Lys **[![Alain](/img/Alain-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/Alain.jpg)
 
  
 
@@ -96,7 +96,7 @@ The Thunder are the only real winners in this trade. They acquire a quality role
 
 Oklahoma City is relatively healthy for the first time all season, and now the have the luxury of choosing from Jeremy Lamb, Anthony Morrow, Perry Jones, Reggie Jackson, Ish Smith and Dion Waiters — a murderer's row of "Put me in, coach" athletes. Dion will provide scoring, ball handling and ridiculous step-backs and take some of the pressure off Jackson. This is an excellent move for the Thunder, and we can bet to see them long into the spring because of it.
 
-**Elliot Altland [![Elliot](images/Elliot-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/Elliot.jpg)**
+**Elliot Altland [![Elliot](/img/Elliot-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/Elliot.jpg)**
 
  
 
@@ -116,7 +116,7 @@ Here's the thing: Waiters isn't Harden. But given the recent success, or lackthe
 
 The Knicks continue to clear cap room while stockpiling some fringe prospects. I don't expect Alex Kirk or Lance Thompson to be long-term answers, but at this point there's nothing that can be lost in taking a pair of flyers. Lou Amundson is just a guy at 32. Add in a future second round pick from Cleveland and the Knicks are at least getting a few stabs at a future turnaround.
 
-**[![Tim](images/ME-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/ME.jpg)Tim Mullhaupt**
+**[![Tim](/img/ME-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/ME.jpg)Tim Mullhaupt**
 
  
 
@@ -138,7 +138,7 @@ Waiters excels when he has the ball in his hands and can create. For a guy who h
 
 And the Knicks? What is there to say. Phil Jackson obviously believes he can get free agents to come to New York and play with Carmelo Anthony and their upcoming top five draft pick. Considering they just gave up arguably their second and third best players, it’s really tough to say they aren’t tanking at this point. Losing Shumpert might hurt more than they expect in the long run, and while flexibility is nice, you would have liked to see New York get at least SOMETHING back that can help them right now. Remember, there were reports they almost traded Shumpert to Oklahoma City last season for a first round pick. How different would things be for both teams if that trade got done?
 
-**Ross Bentley [![](images/ross-2.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/ross-2.jpg)**
+**Ross Bentley [![](/img/ross-2.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/ross-2.jpg)**
 
  
 
@@ -182,7 +182,7 @@ Twitter broke down just after Woj’s J.R. Smith tweet (coincidence?), forcing p
 
 As for the trade itself, I offer my condolences to Cleveland’s fan base and anyone attempting to stop Oklahoma City’s offense in the playoffs.
 
-[![Nigrelli](images/Nigrellu-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Nigrellu.jpg)
+[![Nigrelli](/img/Nigrellu-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Nigrellu.jpg)
 
 **Taylor Nigrelli **
 
@@ -204,4 +204,4 @@ As for Cleveland, trading Waiters for two players of lesser value is certainly a
 
 Clearly New York is in the process of unloading everyone outside of Carmelo Anthony. The Knicks are hoping for the top pick in the 2015 draft and counting on adding a couple high-caliber free agents this summer with the money they have made available through this move and others. Good luck!
 
-[![Zach](images/Zach-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Zach.jpg)**Zach Tennen**
+[![Zach](/img/Zach-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Zach.jpg)**Zach Tennen**

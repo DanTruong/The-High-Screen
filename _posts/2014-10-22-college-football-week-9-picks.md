@@ -20,7 +20,7 @@ Home Team in ALL CAPS
 
 1\. Minnesota (-5.5) over ILLINOIS – Did you know Minnesota is 6-1 and currently in first place in the West division of the Big 10? The Golden Gophers’ only loss this season was to TCU in Fort Worth. Minnesota isn’t a great team, but Illinois is terrible. The Illini’s only wins this season were over Youngstown State, Western Kentucky and Texas State. Minnesota gets to 7-1 with a blowout win over Illinois. Minnesota 34, Illinois 17.
 
-\[caption id="attachment\_1365" align="alignnone" width="300"\][![(Photo taken by Joel Kramer)](images/Kiffin-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Kiffin.jpg) (Photo taken by Joel Kramer)\[/caption\]
+\[caption id="attachment\_1365" align="alignnone" width="300"\][![(Photo taken by Joel Kramer)](/img/Kiffin-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Kiffin.jpg) (Photo taken by Joel Kramer)\[/caption\]
 
  
 

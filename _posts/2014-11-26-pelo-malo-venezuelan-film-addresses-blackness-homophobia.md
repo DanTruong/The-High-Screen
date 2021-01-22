@@ -6,7 +6,7 @@ title: "Pelo Malo: Venezuelan film addresses blackness, homophobia"
 date: "2014-11-26"
 ---
 
-\[caption id="attachment\_1937" align="aligncenter" width="620"\][![Samuel Lange as Junior (Photo provided by Pelo Malo film/Sudaca Films)](images/PELOMALO_Junior.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/PELOMALO_Junior.jpg) Samuel Lange as Junior (Photo provided by Pelo Malo film/Sudaca Films)\[/caption\]
+\[caption id="attachment\_1937" align="aligncenter" width="620"\][![Samuel Lange as Junior (Photo provided by Pelo Malo film/Sudaca Films)](/img/PELOMALO_Junior.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/PELOMALO_Junior.jpg) Samuel Lange as Junior (Photo provided by Pelo Malo film/Sudaca Films)\[/caption\]
 
 ## There are cinematic tragedies, like a sudden death or extended fight scenes that leave a visible scar, and then there are the tragedies likes the ones explored in the Venezuelan film _Pelo Malo_, tragedies of the spirit.
 
@@ -32,7 +32,7 @@ Junior’s desire to have straight hair is similar to the struggle present in La
 
 Rondon described a time where she screened the film in a room full of African-Americans with _pelo malo_ and when she came out, her straight hair was a disappointment.
 
-\[caption id="attachment\_1932" align="alignright" width="300"\][![PELOMALO_M_J](images/PELOMALO_M_J-300x162.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/PELOMALO_M_J.jpg) Samantha Castillo as Marta, Samuel Lange as Junior, Gabriel Guedez as baby (Photo provided by Pelo Malo Film/Sudaca Films)\[/caption\]
+\[caption id="attachment\_1932" align="alignright" width="300"\][![PELOMALO_M_J](/img/PELOMALO_M_J-300x162.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/PELOMALO_M_J.jpg) Samantha Castillo as Marta, Samuel Lange as Junior, Gabriel Guedez as baby (Photo provided by Pelo Malo Film/Sudaca Films)\[/caption\]
 
 “My mother has the most beautiful bad hair that I know and that all my life I envied,” said Rondon, who also wrote and is a founder of Sudaca Films, the independent film company that produced the movie. “I think what happens is that we grow up wanting something that we can’t have and not recognizing ourselves, liking ourselves and that journey we have with the mirror of discovery.”
 

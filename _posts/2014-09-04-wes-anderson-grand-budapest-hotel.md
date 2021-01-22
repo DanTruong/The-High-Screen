@@ -6,7 +6,7 @@ title: "A hospitable stay at The Grand Budapest Hotel"
 date: "2014-09-04"
 ---
 
-[![Wes Anderson at the Los Angeles Screening of 'Fantastic Mr. Fox'](images/bigstock-Wes-Anderson-at-the-Los-Angele-57611738-200x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/bigstock-Wes-Anderson-at-the-Los-Angele-57611738.jpg)
+[![Wes Anderson at the Los Angeles Screening of 'Fantastic Mr. Fox'](/img/bigstock-Wes-Anderson-at-the-Los-Angele-57611738-200x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/bigstock-Wes-Anderson-at-the-Los-Angele-57611738.jpg)
 
 _“Please set your monitor to 16x9.”_
 

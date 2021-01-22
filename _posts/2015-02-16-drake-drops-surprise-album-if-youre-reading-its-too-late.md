@@ -6,7 +6,7 @@ title: "Drake's sky-high confidence on If You're Reading This It's Too Late"
 date: "2015-02-16"
 ---
 
-\[caption id="attachment\_2560" align="aligncenter" width="630"\][![(Photo provided by NRK P3 via Flickr)](images/drake.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/drake.jpg) (Photo provided by [NRK P3](https://www.flickr.com/photos/nrk-p3/12891218634/in/set-72157641775300454) via Flickr)\[/caption\]
+\[caption id="attachment\_2560" align="aligncenter" width="630"\][![(Photo provided by NRK P3 via Flickr)](/img/drake.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/drake.jpg) (Photo provided by [NRK P3](https://www.flickr.com/photos/nrk-p3/12891218634/in/set-72157641775300454) via Flickr)\[/caption\]
 
 ## Drake drops album in time for NBA All-Star Weekend
 

@@ -18,4 +18,4 @@ For Washington's purposes, they'll be eager to establish Alfred Morris to set up
 
  
 
-[Edited with BlogPad Pro![](images/speech-bubble.png)](http://www.blogpadpro.com)
+[Edited with BlogPad Pro![](/img/speech-bubble.png)](http://www.blogpadpro.com)

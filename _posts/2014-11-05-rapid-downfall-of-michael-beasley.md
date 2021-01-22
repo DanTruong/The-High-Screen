@@ -6,7 +6,7 @@ title: "Rapid downfall of Michael Beasley"
 date: "2014-11-05"
 ---
 
-\[caption id="attachment\_1642" align="alignnone" width="221"\][![Michael Beasely (Photo taken by Keith Allison)](images/5501024439_793fd33089_z-221x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/5501024439_793fd33089_z-e1415221131959.jpg) Michael Beasely (Photo taken by Keith Allison)\[/caption\]
+\[caption id="attachment\_1642" align="alignnone" width="221"\][![Michael Beasely (Photo taken by Keith Allison)](/img/5501024439_793fd33089_z-221x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/5501024439_793fd33089_z-e1415221131959.jpg) Michael Beasely (Photo taken by Keith Allison)\[/caption\]
 
  
 

@@ -6,7 +6,7 @@ title: "NBA Power Rankings: Week Three"
 date: "2014-11-17"
 ---
 
-\[caption id="attachment\_1861" align="alignleft" width="276"\][![Dirk Nowitzki. (Photo taken by Keith Allison, CC)](images/Dirk-276x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Dirk-e1416262593359.jpg) Dirk Nowitzki. (Photo taken by Keith Allison, CC)\[/caption\]
+\[caption id="attachment\_1861" align="alignleft" width="276"\][![Dirk Nowitzki. (Photo taken by Keith Allison, CC)](/img/Dirk-276x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Dirk-e1416262593359.jpg) Dirk Nowitzki. (Photo taken by Keith Allison, CC)\[/caption\]
 
 A couple longtime NBA superstars moved up some historic lists this week, each in different ways. Dirk Nowitzki is now the [ninth-highest scorer in NBA history](http://www.nba.com/video/games/mavericks/2014/11/12/0021400106-sac-dal-dirk-passes-hakeem.nba/), while Kobe Bryant, who is on track to pass Michael Jordan sooner-than-later in total points, set the record for [most missed field goal attempts in a career](http://www.nytimes.com/2014/11/16/sports/basketball/to-the-end-kobe-bryant-is-a-shooting-guard-hot-or-cold.html?_r=0). NBA teams did not do much moving up or down on my power rankings this week, with the Miami Heat as the only team to rise or fall more than four spots. ([They fell.](http://www.thehighscreen.com/2014/11/nba-power-rankings-week-two/))
 

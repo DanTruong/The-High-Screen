@@ -30,7 +30,7 @@ This is not one of the three or four worst teams in hockey. However, Brian Burke
 
 Come playoff time, Calgary will likely be on the outside looking in. The same can likely be said about drafting in the top five. But, with a quality offseason, Calgary can begin to think about competing for the playoffs next year. Especially with Sam Bennett lurking.
 
-\[caption id="attachment\_2092" align="alignleft" width="300"\][![Jim Nill. (Photo credit to starsblog.dallasnews.com, CC)](images/Stars-GM-Jim-Nill-300x191.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/Stars-GM-Jim-Nill.jpg) Jim Nill. (Photo credit to starsblog.dallasnews.com, CC)\[/caption\]
+\[caption id="attachment\_2092" align="alignleft" width="300"\][![Jim Nill. (Photo credit to starsblog.dallasnews.com, CC)](/img/Stars-GM-Jim-Nill-300x191.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/Stars-GM-Jim-Nill.jpg) Jim Nill. (Photo credit to starsblog.dallasnews.com, CC)\[/caption\]
 
 **Dallas:** After breaking a five-year playoff drought by qualifying for the postseason last year, Stars GM Jim Nill went all-in this summer to make sure Dallas could compete with the loaded Western Conference. The team added Jason Spezza and Ales Hemsky to an already potent offensive attack.
 

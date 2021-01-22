@@ -6,7 +6,7 @@ author: "Celina Bonifacio"
 date: "2014-10-04"
 ---
 
-[![Monster Movies](images/halloweenie.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/halloweenie.jpg)
+[![Monster Movies](/img/halloweenie.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/halloweenie.jpg)
 
 Remember that Green Day song “Wake Me Up When September Ends?" I feel this way about the month of October.
 
@@ -22,7 +22,7 @@ Perhaps it’s my neurotic nature but my fear of horror movies is more of a mind
 
 Here’s a definitive ranking of things that freak me out. Judge me all you want, if you already haven’t:
 
-[![Vampire bloody lips desire](images/vampire.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/vampire.jpg)
+[![Vampire bloody lips desire](/img/vampire.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/vampire.jpg)
 
  
 
@@ -30,19 +30,19 @@ Here’s a definitive ranking of things that freak me out. Judge me all you want
 
  
 
-[![Creepy set of bloody zombie hands, studio shot over gray backgro](images/zombies.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/zombies.jpg)
+[![Creepy set of bloody zombie hands, studio shot over gray backgro](/img/zombies.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/zombies.jpg)
 
 **Zombies** - Although a zombie apocalypse is possibly one of the most realistic scenarios, I think binge watching every episode of _The Walking Dead_ this past summer just kind of desensitized me toward them. Sign me up for more zombie killing classes please.
 
  
 
-[![one causasian man serial killer with mask portrait in silhouette](images/serial-killer.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/serial-killer.jpg)
+[![one causasian man serial killer with mask portrait in silhouette](/img/serial-killer.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/serial-killer.jpg)
 
 **Serial Killers** - Obviously (and unfortunately) this is a thing that exists in the real world. However, movie serial killers have such a strange range. Like if Freddy Kreuger approached me I’d scream at first but then ask him where he likes to shop for sweaters. But would I ever call up Hannibal Lector to come meet up at Starbucks for Pumpkin Spiced Lattes? Absolutely not.
 
  
 
-[![Scary doll face with clipping path](images/Scary-doll-face.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Scary-doll-face.jpg)
+[![Scary doll face with clipping path](/img/Scary-doll-face.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Scary-doll-face.jpg)
 
 **Ghosts/demons/etc..** - Basically if you can’t shoot, stab, or call the cops on it, you’re probably fucked. That’s how I see it at least. But let’s break this down a bit further: **Possessed children** - noooooope. **Haunted dolls** - more noooooope. **Angry vengeful spirits** - I didn’t even do anything to you, can you not?
 

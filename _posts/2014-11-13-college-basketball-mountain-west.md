@@ -210,7 +210,7 @@ Meanwhile, Boise State also has brought in some exciting newcomers that should h
 
 The Broncos should be a lot of fun to watch and with the talent they have, they should push for a Mountain West conference championship.
 
-\[caption id="attachment\_1781" align="alignleft" width="300"\][![Viejas Arena Scoreboard. (Photo taken by SD Dirk)](images/Aztecs-300x246.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Aztecs-e1415833047138.jpg) Viejas Arena Scoreboard. (Photo taken by SD Dirk)\[/caption\]
+\[caption id="attachment\_1781" align="alignleft" width="300"\][![Viejas Arena Scoreboard. (Photo taken by SD Dirk)](/img/Aztecs-300x246.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Aztecs-e1415833047138.jpg) Viejas Arena Scoreboard. (Photo taken by SD Dirk)\[/caption\]
 
 1\. San Diego State Aztecs
 

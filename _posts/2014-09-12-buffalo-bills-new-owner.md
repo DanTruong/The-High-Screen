@@ -26,7 +26,7 @@ If this had all happened ten, five or even two years ago, I’d feel unrestraine
 
 Not when I know football is a doomed sport.
 
-\[caption id="attachment\_625" align="alignnone" width="620"\][![Buffalo Skyline In Winter](images/bigstock-City-Skyline-In-Winter-6866634-1024x680.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/bigstock-City-Skyline-In-Winter-6866634.jpg) Buffalo is known for its weather, its wings and its football team. But if the NFL loses the public — if the people turn on the league, the sport — then why will it matter that Buffalo is keeping its team?\[/caption\]
+\[caption id="attachment\_625" align="alignnone" width="620"\][![Buffalo Skyline In Winter](/img/bigstock-City-Skyline-In-Winter-6866634-1024x680.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/bigstock-City-Skyline-In-Winter-6866634.jpg) Buffalo is known for its weather, its wings and its football team. But if the NFL loses the public — if the people turn on the league, the sport — then why will it matter that Buffalo is keeping its team?\[/caption\]
 
  
 

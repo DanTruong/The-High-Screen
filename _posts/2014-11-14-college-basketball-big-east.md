@@ -202,7 +202,7 @@ Smith won’t be alone in the frontcourt, as freshman Isaac Copeland headlines a
 
 Georgetown has too much talented to finish below .500 in the Big East again this season, but they will need Smith to stay on the court, Trawick to stay healthy, and the freshman to make a big impact for G’Town to fully return to national prominence.
 
-\[caption id="attachment\_1782" align="alignleft" width="300"\][![Jay Wright. (Photo credit to Chairman of the Joint Chiefs of Staff)](images/14153271483_e375a78ee7_z-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/14153271483_e375a78ee7_z-e1415833734169.jpg) Jay Wright. (Photo credit to Chairman of the Joint Chiefs of Staff)\[/caption\]
+\[caption id="attachment\_1782" align="alignleft" width="300"\][![Jay Wright. (Photo credit to Chairman of the Joint Chiefs of Staff)](/img/14153271483_e375a78ee7_z-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/14153271483_e375a78ee7_z-e1415833734169.jpg) Jay Wright. (Photo credit to Chairman of the Joint Chiefs of Staff)\[/caption\]
 
 1\. Villanova Wildcats
 

@@ -16,7 +16,7 @@ It was Clemsoning to the fullest, and this version of Clemsoning saved the Colle
 
 Luckily for the committee, Clemsoning happened, and the ‘Noles somehow gutted out a victory without its best player on the field. It’s a testament to how talented Florida State is, and we should expect Florida State to be involved in the inaugural four-team playoff.
 
-\[caption id="attachment\_813" align="alignnone" width="300"\][![It has been a long time since the Bulldogs have had anything to play for in the SEC. Could 2014 finally be Mississippi State's year? (Photo taken by Brian Norwood.)](images/Mississippi-State.Football-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Mississippi-State.Football.jpg) It has been a long time since the Bulldogs have had anything to play for in the SEC. Could 2014 finally be Mississippi State's year? (Photo taken by Brian Norwood.)\[/caption\]
+\[caption id="attachment\_813" align="alignnone" width="300"\][![It has been a long time since the Bulldogs have had anything to play for in the SEC. Could 2014 finally be Mississippi State's year? (Photo taken by Brian Norwood.)](/img/Mississippi-State.Football-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Mississippi-State.Football.jpg) It has been a long time since the Bulldogs have had anything to play for in the SEC. Could 2014 finally be Mississippi State's year? (Photo taken by Brian Norwood.)\[/caption\]
 
 So, Mississippi State might be for real. Or maybe it’s finally the season where LSU regresses and people in Baton Rouge start to question Les Miles. Either way, what the Bulldogs did Saturday night in Baton Rouge was a milestone victory for Dan Mullen.
 
@@ -28,7 +28,7 @@ The second most impressive win of the weekend belonged to the Oklahoma Sooners. 
 
 West Virginia scored 33 points on Oklahoma, although six of those points came via a garbage time touchdown. The Sooners forced three turnovers, and they only allowed 137 yards on the ground. Winning a road game at night in a place like Morgantown is never easy, and Oklahoma dominated in the second half. If the playoffs started next week, I’d take Oklahoma over anyone.
 
-\[caption id="attachment\_814" align="alignnone" width="300"\][![The Crimson Tide have something special this year... on offense. (Photo taken by Joel יוֹאֵל.)](images/Alabama.Bryant-DennyStadium-300x110.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Alabama.Bryant-DennyStadium.jpg) The Crimson Tide have something special this year... on offense. (Photo taken by Joel יוֹאֵל.)\[/caption\]
+\[caption id="attachment\_814" align="alignnone" width="300"\][![The Crimson Tide have something special this year... on offense. (Photo taken by Joel יוֹאֵל.)](/img/Alabama.Bryant-DennyStadium-300x110.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Alabama.Bryant-DennyStadium.jpg) The Crimson Tide have something special this year... on offense. (Photo taken by Joel יוֹאֵל.)\[/caption\]
 
 A Heisman trophy candidate emerged in Tuscaloosa last Saturday, as Amari Cooper caught 10 passes for 201 yards and three touchdowns in a 42-21 victory over Florida. Cooper outgained Florida by himself. For most of the game, Cooper went up against Vernon Hargreaves, one of the best corners in college football. Hargreaves did about as well against Cooper as any one defender could, but Cooper was simply catching balls over and around him.
 

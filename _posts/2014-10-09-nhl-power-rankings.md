@@ -64,7 +64,7 @@ Here’s the Week One power rankings (this will be a biweekly thing). Commence t
 
 **9\. Tampa Bay Lightning:** Ben Bishop will not be as good as he was last season. Everyone else might be better. It’s unclear how good Bishop is, but he’s not like to post a save percentage in .930’s every year. Steven Stamkos should play a full season, the team added Anton Stralman, Brian Boyle and Jason Garrison and the young corps led by Jonathan Drouin should make for an exciting team. Whether or not they can contend for a Cup remains to be seen.
 
-\[caption id="attachment\_1095" align="alignnone" width="300"\][![When you win the Stanley Cup, you enter the following season with the largest target on your back. I'm sure Kings fans love every second of it. (Photo by David Jones)](images/4430135668_45f9b7a210_b-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/4430135668_45f9b7a210_b.jpg) When you win the Stanley Cup, you enter the following season with the largest target on your back. I'm sure Kings fans love every second of it.  
+\[caption id="attachment\_1095" align="alignnone" width="300"\][![When you win the Stanley Cup, you enter the following season with the largest target on your back. I'm sure Kings fans love every second of it. (Photo by David Jones)](/img/4430135668_45f9b7a210_b-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/4430135668_45f9b7a210_b.jpg) When you win the Stanley Cup, you enter the following season with the largest target on your back. I'm sure Kings fans love every second of it.  
 (Photo by David Jones)\[/caption\]
 
  

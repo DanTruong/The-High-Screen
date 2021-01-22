@@ -20,7 +20,7 @@ While watching the Wildebeest which is Kenneth Faried and his Nuggeteers take on
 
 Boogie Woogie Get-Down-Tonight Cousins, the First Patriarch of DeMarcus, city of Cousins.
 
-\[caption id="attachment\_1662" align="alignleft" width="300"\][![The Wonder: Boogie. (Photo credit to U.S. Army Corps of Engineers)](images/5178780075_67360ba288_z-300x224.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/5178780075_67360ba288_z-e1415376838501.jpg) The Basketball Wonder: Boogie. (Photo credit to U.S. Army Corps of Engineers)\[/caption\]
+\[caption id="attachment\_1662" align="alignleft" width="300"\][![The Wonder: Boogie. (Photo credit to U.S. Army Corps of Engineers)](/img/5178780075_67360ba288_z-300x224.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/5178780075_67360ba288_z-e1415376838501.jpg) The Basketball Wonder: Boogie. (Photo credit to U.S. Army Corps of Engineers)\[/caption\]
 
 The collective masses of Boogie fan-boys have been [parading out of their holes and rejoicing all over the world](http://grantland.com/the-triangle/nba-shootaround-the-jazz-messengers/). Currently, it would be no trouble to find a Boogie article linked to the bottom of every sports page on the Internet. Try it… Seriously. That might raise the question: Is another Boogie article too much?
 

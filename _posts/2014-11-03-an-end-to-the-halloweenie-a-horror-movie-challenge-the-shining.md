@@ -6,7 +6,7 @@ title: "An end to the Halloweenie: A Horror Movie Challenge "
 date: "2014-11-03"
 ---
 
-\[caption id="attachment\_1581" align="aligncenter" width="500"\][![(Photo provided by Flickr-Alex Aylar)](images/theshining.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/theshining.jpg) (Photo provided by [Flickr-Alex Aylar](http://www.flickr.com/photos/hoyvinmayvin/5133858870/in/photolist-8PEno7-akYKhr-5jKpi3-8Btb6m-3ejitN-gjf3iC-4xiijt-o5AyPe-3Ha9aZ-7ehuXP-d4PBhy-8Jf1Dp-bnygeX-kUy1D2-bsqD14-kNpsim-24VGRw-86sLuY-MBf3K-pX4FE-3jVJaC-pkvzYF-qwPt6-ksigGK-8gsHxF-kpmgci-eXw4MG-86NZT8-cY5XLS-a3RMF-7hm4X5-nivZYL-93kWbd-axpBD9-gpK1wH-4UXM8i-dkjHUs-opLGAp-bon8bM-7hKRLS-8w7cJB-74xZmV-9u11C3-6VuymL-opSQRy-hGEEYJ-8PEngh-aW1xfz-dLiFmu-h9U5dd/))\[/caption\]
+\[caption id="attachment\_1581" align="aligncenter" width="500"\][![(Photo provided by Flickr-Alex Aylar)](/img/theshining.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/theshining.jpg) (Photo provided by [Flickr-Alex Aylar](http://www.flickr.com/photos/hoyvinmayvin/5133858870/in/photolist-8PEno7-akYKhr-5jKpi3-8Btb6m-3ejitN-gjf3iC-4xiijt-o5AyPe-3Ha9aZ-7ehuXP-d4PBhy-8Jf1Dp-bnygeX-kUy1D2-bsqD14-kNpsim-24VGRw-86sLuY-MBf3K-pX4FE-3jVJaC-pkvzYF-qwPt6-ksigGK-8gsHxF-kpmgci-eXw4MG-86NZT8-cY5XLS-a3RMF-7hm4X5-nivZYL-93kWbd-axpBD9-gpK1wH-4UXM8i-dkjHUs-opLGAp-bon8bM-7hKRLS-8w7cJB-74xZmV-9u11C3-6VuymL-opSQRy-hGEEYJ-8PEngh-aW1xfz-dLiFmu-h9U5dd/))\[/caption\]
 
 If there’s one horror movie I’ve been dodging my whole life, it’s _The Shining_. I’m only familiar with it through pop culture references (ESPECIALLY around this time) and the crazy theories behind it. Whenever I hear Stephen King associated with anything, I just automatically assume I’ll be scared to death. Much to everyone’s surprise, I’ve seen _Carrie_ more than once and truly enjoyed it. And no, I think I can go on a little longer without watching It. I’ve been getting my creepy clown fix through _American Horror Story: Freakshow_. 
 
@@ -26,7 +26,7 @@ Although someone else has got it worse, it’s a relief to see them triumph over
 
 Much to my surprise, I want to look more into the behind the scenes and some of the myths associated with the film. I can finally dive into more of Kubrick’s movies, and maybe I’ll even add a few Stephen King books to my seemingly endless list of books to read. Maybe this what happens when you step out of your comfort zone, you discover things you thought you’d never enjoy.  
 
-\[caption id="attachment\_1579" align="alignnone" width="640"\][![heresjohnny](images/heresjohnny.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/heresjohnny.jpg) (Photo provided by [Flickr-navalhistory](https://www.flickr.com/photos/navalhistory/), edited by Moraima Capellán Pichardo)\[/caption\]
+\[caption id="attachment\_1579" align="alignnone" width="640"\][![heresjohnny](/img/heresjohnny.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/heresjohnny.jpg) (Photo provided by [Flickr-navalhistory](https://www.flickr.com/photos/navalhistory/), edited by Moraima Capellán Pichardo)\[/caption\]
 
 **Here’s are some specific thoughts on a few of The Shining’s most terrifying and iconic scenes**:
 

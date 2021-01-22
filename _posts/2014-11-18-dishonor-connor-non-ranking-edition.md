@@ -6,7 +6,7 @@ title: "Dishonor for Connor: Poor Tanking, No Ranking"
 date: "2014-11-18"
 ---
 
-\[caption id="attachment\_1867" align="alignleft" width="265"\][![Connor McDavid (Photo credit to Wikimedia, available for reuse under CC)](images/mcdavid-e1416340945544.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/mcdavid-e1416340945544.jpg) Connor McDavid (Photo credit to Wikimedia, available for reuse under CC)\[/caption\]
+\[caption id="attachment\_1867" align="alignleft" width="265"\][![Connor McDavid (Photo credit to Wikimedia, available for reuse under CC)](/img/mcdavid-e1416340945544.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/mcdavid-e1416340945544.jpg) Connor McDavid (Photo credit to Wikimedia, available for reuse under CC)\[/caption\]
 
 Connor McDavid sits out the first week of [a five-to-six week hand injury](http://www.sportingnews.com/nhl/story/2014-11-11/connor-mcdavid-fight-hand-injury-erie-otters-jack-eichel) and many of the teams with the best chance at drafting him first start to win a few games. Coincidence? Yes. Totally. But there is something to be taken from this recent success of previously dreadful squads: the Sabres are now firmly in control of last place (and the subsequently the best odds on the first overall pick).
 

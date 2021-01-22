@@ -18,7 +18,7 @@ _The good: _Russell Westbrook and Kevin Durant. The two have proven to be unsto
 
 _The bad: _Critics accuse Westbrook of taking away too many shot attempts from Durant.  However, that is just Westbrook's nature as an incredibly gifted scoring guard.  Its supporting cast has ultimately failed to put OKC over the top these last couple years.  Will Andre Roberson, Jeremy Lamb, Steven Adams, etc. cut it?
 
-\[caption id="attachment\_999" align="alignleft" width="300"\][![Duncan, Diaw. (Photo taken by Keith Allison)](images/Duncan.Diaw_-300x221.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Duncan.Diaw_-e1414351265598.jpg) Duncan, Diaw. (Photo taken by Keith Allison)\[/caption\]
+\[caption id="attachment\_999" align="alignleft" width="300"\][![Duncan, Diaw. (Photo taken by Keith Allison)](/img/Duncan.Diaw_-300x221.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Duncan.Diaw_-e1414351265598.jpg) Duncan, Diaw. (Photo taken by Keith Allison)\[/caption\]
 
 **San Antonio Spurs:**
 
@@ -38,7 +38,7 @@ _The good:_ Grit-N-Grind offer overwhelming post and perimeter defense to a poi
 
 _The bad: _Although the Grizz have gradually improved on offense, they can be stagnant at times.  Courtney Lee is shooting over 54 percent from deep and Memphis has to be thankful for his perimeter presence. Outside of him, and a recent resurgence from Vince Carter, the Grizz rank just 28th in 3PM and 3PA.
 
-\[caption id="attachment\_1738" align="alignright" width="188"\][![James Harden. (Photo from Wikipedia, eligible for re-use, CC)](images/James_Harden_Rockets_cropped-188x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/James_Harden_Rockets_cropped-e1415654456893.jpg) James Harden. (Photo from Wikipedia, eligible for re-use, CC)\[/caption\]
+\[caption id="attachment\_1738" align="alignright" width="188"\][![James Harden. (Photo from Wikipedia, eligible for re-use, CC)](/img/James_Harden_Rockets_cropped-188x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/James_Harden_Rockets_cropped-e1415654456893.jpg) James Harden. (Photo from Wikipedia, eligible for re-use, CC)\[/caption\]
 
 **Houston Rockets:**
 

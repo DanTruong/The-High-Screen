@@ -6,7 +6,7 @@ title: "Colorful, Innovative: The Book of Life honors Mexican culture"
 date: "2014-10-29"
 ---
 
-\[caption id="attachment\_1498" align="alignnone" width="500"\][![Del Toro received the 2014 Anthony Quinn Alma Award for achievement in film.  (Photo provided by Flickr, NCLR)](images/DelToro_AlmaAwards.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/DelToro_AlmaAwards.jpg) Del Toro received the 2014 Anthony Quinn Alma Award for achievement in film.  
+\[caption id="attachment\_1498" align="alignnone" width="500"\][![Del Toro received the 2014 Anthony Quinn Alma Award for achievement in film.  (Photo provided by Flickr, NCLR)](/img/DelToro_AlmaAwards.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/DelToro_AlmaAwards.jpg) Del Toro received the 2014 Anthony Quinn Alma Award for achievement in film.  
 (Photo provided by Flickr, [NCLR](https://www.flickr.com/photos/nclr/sets/72157648751206052/))\[/caption\]
 
 During his speech at the 2014 [NCLR Alma Awards](http://www.almaawards.com/), Guillermo del Toro shared a story of his friend and colleague, Guillermo Navarro (_Pacific Rim_) of their early days in the film industry. Simply put, a Hollywood studio executive told Navarro that he did not need a Mexican filmmaker, he already had a gardener.

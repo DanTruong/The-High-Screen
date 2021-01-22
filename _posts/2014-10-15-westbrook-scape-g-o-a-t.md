@@ -6,7 +6,7 @@ author: "Kwame Belle"
 date: "2014-10-15"
 ---
 
-\[caption id="attachment\_1190" align="alignnone" width="232"\][![(Photo credit to Keith Allison)](images/Westbrook-232x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Westbrook.jpg) (Photo credit to Keith Allison)\[/caption\]
+\[caption id="attachment\_1190" align="alignnone" width="232"\][![(Photo credit to Keith Allison)](/img/Westbrook-232x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Westbrook.jpg) (Photo credit to Keith Allison)\[/caption\]
 
  
 

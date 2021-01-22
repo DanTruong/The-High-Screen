@@ -14,13 +14,13 @@ https://www.youtube.com/watch?v=gtzlD0Sh4Q0
 
 The spark notes version? Pete Carroll showed up, Marshawn Lynch ruined the defending champs, Russell Wilson and Golden Tate made a "catch" over M.D. Jennings, the Legion of Boom formed, a Super Bowl was won, and after fighting off one nasty hangover, the Seahawks appear to be primed to be the first team to repeat since the '04 Patriots.
 
-\[caption id="attachment\_2349" align="alignright" width="214"\][![Rodgers 2](images/Rodgers-2-214x300.jpg)](http://www.flickr.com/photos/mikemorbeck/4231736194) Aaron Rodgers. (Photo provided by Mike Morbeck)\[/caption\]
+\[caption id="attachment\_2349" align="alignright" width="214"\][![Rodgers 2](/img/Rodgers-2-214x300.jpg)](http://www.flickr.com/photos/mikemorbeck/4231736194) Aaron Rodgers. (Photo provided by Mike Morbeck)\[/caption\]
 
 Where does this leave Rodgers and the Packers? Well they of course were the on the wrong end of what is affectionately dubbed the ["Fail Mary"](https://www.youtube.com/watch?v=cnGa6ycrYYM) in most places outside the Pacific Northwest. They traveled to Seattle to open the 2014 NFL season and got smacked 36-16. They will try and avenge the loss this Sunday and secure their first trip back to the big dance since 2010. They better hope their signal caller is up to speed.
 
 It's been widely reported that Rodgers is dealing with a bum calf. It certainly didn't look that way when No. 12 hung three touchdowns and 316 yards on Dallas last week. With a solid 92.6 QBR against Seattle in his four starts and one appearance, you'd think Rodgers still has the Seahawks' number. In reality, Rodgers has never thrown for more than 250 yards against Seattle. It should come as no surprise that Rodgers' lowest YPG against any team is the Seahawks with a mark of 171.4. His four passing touchdowns in four starts is tied for the lowest TD/G of any team he's faced. Bottom line, Seattle's vaunted secondary is more than capable of containing the wily gunslinger.
 
-[![Aaaron Rodgers](images/Aaaron-Rodgers.png)](http://www.thehighscreen.com/wp-content/uploads/2015/01/Aaaron-Rodgers.png)
+[![Aaaron Rodgers](/img/Aaaron-Rodgers.png)](http://www.thehighscreen.com/wp-content/uploads/2015/01/Aaaron-Rodgers.png)
 
 So how does Rodgers do it? How does he solve a defense that hasn’t allowed more than 20 points since November 16?[They plan on being aggressive](http://www.thenewstribune.com/2015/01/14/3588849_richard-sherman-will-be-more-of.html?rh=1) — more aggressive than they were in the opener, a game in which Rodgers avoided Richard Sherman entirely. The Packers’ leader failed to throw a single pass in the direction of the Seahawks’ heart and soul. That will likely change Sunday. Losing by twenty has a way of doing that.
 

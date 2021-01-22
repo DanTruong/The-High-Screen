@@ -6,7 +6,7 @@ title: "Marvel's Agent Carter shines light on supporting cast heading into two-w
 date: "2015-01-16"
 ---
 
-\[caption id="attachment\_2355" align="aligncenter" width="625"\][![(Photo provided by Marvel-Image.net)](images/Agent_Carter.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/Agent_Carter.jpg) (Photo provided by Marvel-Image.net)\[/caption\]
+\[caption id="attachment\_2355" align="aligncenter" width="625"\][![(Photo provided by Marvel-Image.net)](/img/Agent_Carter.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/Agent_Carter.jpg) (Photo provided by Marvel-Image.net)\[/caption\]
 
 _Warning spoilers below_
 

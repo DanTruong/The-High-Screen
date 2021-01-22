@@ -6,7 +6,7 @@ title: "The Joe Mags Show — Taylor Pangman, Oct. 9, 2014"
 date: "2014-10-09"
 ---
 
-\[caption id="attachment\_1052" align="alignnone" width="190"\][![Ben Affleck at the New York City world premiere on Gone Girl (Photo provided by BigStock)](images/BenAffleck-190x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/BenAffleck.jpg) Ben Affleck at the New York City world premiere on Gone Girl  
+\[caption id="attachment\_1052" align="alignnone" width="190"\][![Ben Affleck at the New York City world premiere on Gone Girl (Photo provided by BigStock)](/img/BenAffleck-190x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/BenAffleck.jpg) Ben Affleck at the New York City world premiere on Gone Girl  
 (Photo provided by BigStock)\[/caption\]
 
  

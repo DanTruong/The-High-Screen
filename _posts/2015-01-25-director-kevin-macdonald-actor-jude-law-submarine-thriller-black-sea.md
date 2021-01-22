@@ -6,7 +6,7 @@ author: "THS Staff"
 date: "2015-01-25"
 ---
 
-\[caption id="attachment\_2399" align="aligncenter" width="640"\][![(Photo provided by Focus Features)](images/JudeLaw_BlackSea.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/JudeLaw_BlackSea.jpg) Jude Law is submarine captain, Robinson. (Photo provided by Focus Features)\[/caption\]
+\[caption id="attachment\_2399" align="aligncenter" width="640"\][![(Photo provided by Focus Features)](/img/JudeLaw_BlackSea.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/JudeLaw_BlackSea.jpg) Jude Law is submarine captain, Robinson. (Photo provided by Focus Features)\[/caption\]
 
 ## Underlying themes of money, redemption and the politics of blue-collar jobs are present in the seemingly simple submarine thriller, _Black Sea._
 
@@ -30,7 +30,7 @@ On the surface level, these men are all similar outcasts (and all white) struggl
 
  
 
-\[caption id="attachment\_2401" align="aligncenter" width="640"\][![(Photo provided by Focus Features)](images/BlackSeaCast.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/BlackSeaCast.jpg) (Photo provided by Focus Features)\[/caption\]
+\[caption id="attachment\_2401" align="aligncenter" width="640"\][![(Photo provided by Focus Features)](/img/BlackSeaCast.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/BlackSeaCast.jpg) (Photo provided by Focus Features)\[/caption\]
 
 _Black Sea_ depicts the basic physical effects of greed and money as these men come to understand that less of them means more money. Death takes over and the submarine becomes volatile, accentuating the claustrophobia and tension of being trapped at the bottom of the ocean. _Black Sea_ features a Law that we have never seen before. Macdonald admits to being initially skeptical of casting Law due to his image of the romantic type lead.
 

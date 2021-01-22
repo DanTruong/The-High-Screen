@@ -20,7 +20,7 @@ With "Shake It Off" she told us to keep making GIF's of her bad dancing skills, 
 
 Yes, Taylor does look like a daydream but it is the gutsy transition from sweet country star to bad ass that should keep people talking. Hopefully we (the media) can move on from her personal life. Here's to wishful thinking.
 
-[![Mora_WebPhoto](images/Mora_WebPhoto-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Mora_WebPhoto.jpg)
+[![Mora_WebPhoto](/img/Mora_WebPhoto-150x150.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Mora_WebPhoto.jpg)
 
 ### Moraima Capellán Pichardo
 

@@ -6,7 +6,7 @@ author: "Joe Mags"
 date: "2014-11-13"
 ---
 
-\[caption id="attachment\_917" align="alignleft" width="196"\][![Paul Millsap. (Photo available for reuse under creative commons)](images/Paul_Millsap_Atlanta_Hawks_cropped-196x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Paul_Millsap_Atlanta_Hawks_cropped-e1415857560867.jpg) Paul Millsap. (Photo available for reuse under creative commons)\[/caption\]
+\[caption id="attachment\_917" align="alignleft" width="196"\][![Paul Millsap. (Photo available for reuse under creative commons)](/img/Paul_Millsap_Atlanta_Hawks_cropped-196x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Paul_Millsap_Atlanta_Hawks_cropped-e1415857560867.jpg) Paul Millsap. (Photo available for reuse under creative commons)\[/caption\]
 
 When Atlanta walked off its home floor Wednesday night with a 100-97 victory over Utah, Mike Budenholzer did what all victorious coaches do in the NBA — they wave across the floor to the opposing coach and walk to the locker room. But as Bob Rathbun and Dominique Wilkins discussed during the broadcast, Budenholzer and Jazz coach Quin Snyder are more than just peers: Budenholzer watched Snyder blossom as a gifted assistant coach on his bench last season.
 

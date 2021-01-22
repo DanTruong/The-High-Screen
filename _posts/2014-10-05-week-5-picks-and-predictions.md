@@ -6,7 +6,7 @@ author: "THS Staff"
 date: "2014-10-05"
 ---
 
-\[caption id="" align="alignnone" width="514"\]![](images/Tom_Brady.jpg "Tom Brady") (Photo taken by Keith Allison)\[/caption\]
+\[caption id="" align="alignnone" width="514"\]![](/img/Tom_Brady.jpg "Tom Brady") (Photo taken by Keith Allison)\[/caption\]
 
  
 

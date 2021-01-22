@@ -236,7 +236,7 @@ Fellow top-100 recruit Michael Humphrey comes in as well and should be the first
 
 Stanford might not be as good as last year’s team played in the NCAA Tournament, but they should hang around in the Pac-12 and safely make the field in the NCAA’s.
 
-\[caption id="attachment\_1535" align="alignnone" width="300"\][![UCLA is among several Pac-12 teams hoping to go dancing in 2014-15. (Photo credit to J R and the UCLA Dance Team)](images/3207176841_ff554d7c4c_z-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/3207176841_ff554d7c4c_z-e1414698040228.jpg) UCLA is among several Pac-12 teams hoping to go dancing in 2014-15. (Photo credit to J R and the  
+\[caption id="attachment\_1535" align="alignnone" width="300"\][![UCLA is among several Pac-12 teams hoping to go dancing in 2014-15. (Photo credit to J R and the UCLA Dance Team)](/img/3207176841_ff554d7c4c_z-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/3207176841_ff554d7c4c_z-e1414698040228.jpg) UCLA is among several Pac-12 teams hoping to go dancing in 2014-15. (Photo credit to J R and the  
 UCLA Dance Team)\[/caption\]
 
  

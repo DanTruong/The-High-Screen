@@ -12,7 +12,7 @@ They'll be plenty of time to recap all the things I got wrong in my weekly predi
 
 ### NY Giants at Detroit 7:10 P.M.
 
-[![Giants at Lions](images/Giants-at-Lions.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Giants-at-Lions.jpg)
+[![Giants at Lions](/img/Giants-at-Lions.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Giants-at-Lions.jpg)
 
  
 
@@ -36,7 +36,7 @@ Lions 26, Giants 17
 
 ### San Diego at Arizona 10:20 P.M.
 
-[![Chargers at Cardinals](images/Chargers-at-Cardinals.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Chargers-at-Cardinals.jpg)
+[![Chargers at Cardinals](/img/Chargers-at-Cardinals.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Chargers-at-Cardinals.jpg)
 
  
 

@@ -64,7 +64,7 @@ Then it sets in. I’m FUCKING GRADUATING.
 
 It’ll be ok. Six months is a long time. It’ll be ok.
 
-[![college 2](images/college-2.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/college-2.jpg)
+[![college 2](/img/college-2.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/college-2.jpg)
 
 ...
 
@@ -104,7 +104,7 @@ No one’s expecting us to dominate our respective fields the second we’re han
 
 “We’re so young,” Keegan emphasizes in her essay. "We have so much time.” Cruel irony aside, Keegan has a point. We are young. We do have so much time. Time to continue having fun. Time to try different things. Time to learn a new skill. Time to improve at our vocations. Time to fall in love. Time to figure out this whole writing thing. You can’t be the best version of yourself at 22.
 
-[![college](images/college.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/college.jpg)
+[![college](/img/college.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/college.jpg)
 
 It’s the night before I go back for my last semester of college. I'm sitting on the floor of my room at home amid a slew of half-packed bags, wondering how I always seem to accumulate more and more stuff as the year goes on. I'm scrolling through Twitter and I see all the “excited to go back to Bonaventure” tweets. Saturday night should be pretty damn fun.
 

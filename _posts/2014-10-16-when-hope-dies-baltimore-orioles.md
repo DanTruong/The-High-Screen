@@ -8,7 +8,7 @@ date: "2014-10-16"
 
 The Baltimore Orioles had a legitimate shot at the World Series just a matter of days ago. And they were playing like it. The Orioles weren't like they are now — on their way back home, wondering what might have been if they hadn’t been hit with a barrage of injuries. No, they were very much alive, as was downtown Baltimore. I should know, I was there.
 
-\[caption id="attachment\_1202" align="alignnone" width="300"\][![(Photo taken by Kevin Farner)](images/2617539982_3bb23babb6_b-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/2617539982_3bb23babb6_b-e1413414632717.jpg) (Photo taken by Kevin Farner)\[/caption\]
+\[caption id="attachment\_1202" align="alignnone" width="300"\][![(Photo taken by Kevin Farner)](/img/2617539982_3bb23babb6_b-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/2617539982_3bb23babb6_b-e1413414632717.jpg) (Photo taken by Kevin Farner)\[/caption\]
 
  
 

@@ -6,7 +6,7 @@ author: "Celina Bonifacio"
 date: "2014-09-01"
 ---
 
-[![Garfunkel and Oates Season 1](images/Garfunkel_Oates.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Garfunkel_Oates.jpg)
+[![Garfunkel and Oates Season 1](/img/Garfunkel_Oates.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/Garfunkel_Oates.jpg)
 
 The comedy band, _Garfunkel and Oates_, go from computer screen to TV screen with the premiere of their self-titled show on IFC. Prior to the official August 7 premiere, the pilot was up and running online ([watch it here](http://bcove.me/9mpfxu9n)) which is more than appropriate for this YouTube famous duo. So far, some of their popular YouTube songs like “Go Sports Go” and “The Fade Away” have made it onto the show.
 

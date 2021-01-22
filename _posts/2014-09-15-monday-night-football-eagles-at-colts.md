@@ -18,7 +18,7 @@ The Colts secondary and front seven are far from special. Vontae Davis can't cov
 
 In the case of a tie, tie goes to the one with the most wins on his resume. Not to knock Foles but Luck has simply done more with arguably less-maybe even significantly less. Luck was utterly sensational last season against teams that made the playoffs including wins against the team that showed up on Super Bowl Sunday and the team that got showed up. Below are Andrew Luck's 2013 regular season line against teams that made the postseason (click to enlarge).
 
-[![Luck v Playoff Teams](images/Luck-v-Playoff-Teams.png)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Luck-v-Playoff-Teams.png)
+[![Luck v Playoff Teams](/img/Luck-v-Playoff-Teams.png)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Luck-v-Playoff-Teams.png)
 
 Last I checked, the Eagles were a playoff team a year ago. Does that mean Luck is predestined to succeed tonight? Absolutely not, but keep in mind Luck didn't have Reggie Wayne for the entire season last year (Wayne left in the midst of the fourth matchup against a would-be playoff team) nor starting tight end Dwayne Allen who was lost for the season in last year's opener. With Wayne and Dwayne back in the fold, the Colts will prove to be a formidable challenge for Philly's defense.
 

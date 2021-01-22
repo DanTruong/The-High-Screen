@@ -8,7 +8,7 @@ date: "2014-11-11"
 
  
 
-\[caption id="attachment\_1777" align="aligncenter" width="500"\][![Michael James Shaw as Papa Midnite, Matt Ryan as John Constantine -- (Photo by: Tina Rowden/NBC)](images/ConstantineEp3.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/ConstantineEp3.jpg) Michael James Shaw as Papa Midnite, Matt Ryan as John Constantine -- (Photo by: Tina Rowden/NBC)\[/caption\]
+\[caption id="attachment\_1777" align="aligncenter" width="500"\][![Michael James Shaw as Papa Midnite, Matt Ryan as John Constantine -- (Photo by: Tina Rowden/NBC)](/img/ConstantineEp3.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/ConstantineEp3.jpg) Michael James Shaw as Papa Midnite, Matt Ryan as John Constantine -- (Photo by: Tina Rowden/NBC)\[/caption\]
 
 When you’re given instructions not to do something, what’s the next logical step? For most it would be to not do the said thing — but, hey, everybody is different. Curiosity has been known to treat felines abhorrently from time to time, and in this week’s episode of Constantine, “The Devils Vinyl,” there are no shortage of deceased creatures.
 

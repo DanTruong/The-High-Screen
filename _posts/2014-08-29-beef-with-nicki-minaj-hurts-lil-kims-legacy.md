@@ -6,7 +6,7 @@ title: "Beef with Nicki Minaj hurts Lil Kim's legacy"
 date: "2014-08-29"
 ---
 
-[![LilKim_Nicki](images/LilKim_Nicki.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/LilKim_Nicki.jpg)
+[![LilKim_Nicki](/img/LilKim_Nicki.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/08/LilKim_Nicki.jpg)
 
 Rap has always been a boys club, identified by the masculinity of its roots, but that isn’t the case anymore.
 

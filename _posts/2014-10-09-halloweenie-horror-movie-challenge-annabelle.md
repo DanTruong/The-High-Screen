@@ -6,7 +6,7 @@ title: "The Halloweenie Watches Annabelle"
 date: "2014-10-09"
 ---
 
-\[caption id="attachment\_1071" align="aligncenter" width="700"\][![Mexican Burrito](images/boorrito.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/boorrito.jpg) (Graphics by Moraima Capellán Pichardo)\[/caption\]
+\[caption id="attachment\_1071" align="aligncenter" width="700"\][![Mexican Burrito](/img/boorrito.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/boorrito.jpg) (Graphics by Moraima Capellán Pichardo)\[/caption\]
 
 I figured I’d kick off the [Halloweenie: A Horror Movie Challenge](http://www.thehighscreen.com/2014/10/halloweenie-a-horror-movie-challenge-preview/) with a brand new film, _Annabelle_. Before the previews even started, my nose decided to bleed profusely. I’m sitting alone in a theater covered in blood right before a horror movie is about to begin. Would you sit next to me? Perhaps this was my body’s way of telling me, “What the hell have you gotten yourself into Celina?!” I cleaned myself up, and proceeded to find out what I got myself into.
 
@@ -28,7 +28,7 @@ Basically, the disappointing ending took away from any scary feelings I had. Aft
 
 However, I’ll wrap this up with a few observations and life lessons.
 
-[![Popcorn Background Close Up](images/popcorn.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/popcorn.jpg)
+[![Popcorn Background Close Up](/img/popcorn.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/popcorn.jpg)
 
 **Horrifying Highlights**:
 
@@ -41,7 +41,7 @@ However, I’ll wrap this up with a few observations and life lessons.
 
  
 
-[![Antiques For Sale](images/thrift.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/thrift.jpg)
+[![Antiques For Sale](/img/thrift.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/thrift.jpg)
 
 **Haloweenie Hot Tips:**
 
@@ -51,7 +51,7 @@ However, I’ll wrap this up with a few observations and life lessons.
 
  
 
-[![guacamole dip in bowl isolated on white background](images/guac.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/guac.jpg)
+[![guacamole dip in bowl isolated on white background](/img/guac.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/guac.jpg)
 
 **What I would’ve done instead:**
 

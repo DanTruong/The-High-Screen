@@ -6,7 +6,7 @@ title: "Matt Ryan brings potential, lighthearted humor to NBC's Constantine"
 date: "2014-11-04"
 ---
 
-\[caption id="attachment\_1624" align="alignnone" width="500"\][![Matt Ryan as John Constantine -- (Photo by: Quantrell Colbert/NBC)](images/MattRyan.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/MattRyan.jpg) Matt Ryan as John Constantine -- (Photo by: Quantrell Colbert/NBC)\[/caption\]
+\[caption id="attachment\_1624" align="alignnone" width="500"\][![Matt Ryan as John Constantine -- (Photo by: Quantrell Colbert/NBC)](/img/MattRyan.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/MattRyan.jpg) Matt Ryan as John Constantine -- (Photo by: Quantrell Colbert/NBC)\[/caption\]
 
  
 
@@ -22,7 +22,7 @@ To the credit of Daniel Cerone who wrote the script, _Constantine_ builds a fasc
 
 Thankfully, _Constantine_ looks pretty cool and this combined with decent story arcs is admittedly fun. From moments like the creation of a crater into hell and exorcism-like-body bending, _Constantine_ puts a staunch amount of effort into its presentation. Director Neil Marshall, known for his work on _Game of Thrones_, is the main culprit for the creative take on the dark arts. These moments make up for the weakest part of the show and that’s who Constantine comes back for, Liv. Liv is the stereotypical dead friend’s daughter who acts as the driving force for the plot and as quick as she comes she goes. Lucy Griffiths, who was cast as Liv, was [written out of the show as regular filming began](http://www.hollywoodreporter.com/live-feed/constantines-lucy-griffiths-exits-nbc-717266).
 
-\[caption id="attachment\_1625" align="alignnone" width="500"\][![Matt Ryan as John Constantine, Angelica Celaya as Zed -- (Photo by: Tina Rowden/NBC)](images/Ryan_Angelica.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Ryan_Angelica.jpg) Matt Ryan as John Constantine, Angelica Celaya as Zed -- (Photo by: Tina Rowden/NBC)\[/caption\]
+\[caption id="attachment\_1625" align="alignnone" width="500"\][![Matt Ryan as John Constantine, Angelica Celaya as Zed -- (Photo by: Tina Rowden/NBC)](/img/Ryan_Angelica.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Ryan_Angelica.jpg) Matt Ryan as John Constantine, Angelica Celaya as Zed -- (Photo by: Tina Rowden/NBC)\[/caption\]
 
 Liv’s replacement, Zed Martin (Angélica Celaya) was the shows latest challenge. At the end of the pilot episode, we were shown a frantic artist, Zed Martin, surrounded by drawings of our hero John Constantine. Rockne S. O'Bannon, writer for episode two, was given the task of working Zed in with the show. As oppose to casting a character similar to Liv, show-runners Cerone and Goyer decided to go in a different direction. Zed is the polar opposite of Liv, and in all the good ways. She’s persistent as compared to Liv’s passive; curious in contrast to Liv’s disbelief.
 

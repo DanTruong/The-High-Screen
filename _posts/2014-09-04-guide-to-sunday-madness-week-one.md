@@ -20,7 +20,7 @@ Onto the next one.
 
 ### Cleveland @ Pittsburgh 1 P.M.
 
-[![Browns at Steelers](images/Browns-at-Steelers.png)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Browns-at-Steelers.png)
+[![Browns at Steelers](/img/Browns-at-Steelers.png)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Browns-at-Steelers.png)
 
 **What will happen:**
 
@@ -40,7 +40,7 @@ Steelers 23 Browns 16
 
 ### New Orleans @ Atlanta 1 P.M.
 
-[![Saints at Falcons](images/Saints-at-Falcons.png)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Saints-at-Falcons.png)
+[![Saints at Falcons](/img/Saints-at-Falcons.png)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Saints-at-Falcons.png)
 
 **What will happen:**
 
@@ -56,7 +56,7 @@ Saints 34 Falcons 24
 
 ### Minnesota @ St. Louis 1 P.M.
 
-[![Vikings at Rams](images/Vikings-at-Rams.png)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Vikings-at-Rams.png)
+[![Vikings at Rams](/img/Vikings-at-Rams.png)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Vikings-at-Rams.png)
 
  
 
@@ -74,7 +74,7 @@ Vikings 22 Rams 19
 
 ### Jacksonville @ Philadelphia 1 P.M.
 
-[![Jaguars at Eagles](images/Jaguars-at-Eagles.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Jaguars-at-Eagles.jpg)
+[![Jaguars at Eagles](/img/Jaguars-at-Eagles.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Jaguars-at-Eagles.jpg)
 
  
 
@@ -92,7 +92,7 @@ Eagles 37 Jaguars 23
 
 ### Oakland @ NY Jets 1 P.M.
 
-[![Raiders at Jets](images/Raiders-at-Jets.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Raiders-at-Jets.jpg)
+[![Raiders at Jets](/img/Raiders-at-Jets.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Raiders-at-Jets.jpg)
 
 **What will happen:**
 
@@ -108,7 +108,7 @@ Jets 24 Raiders 10
 
 ### Cincinnati @ Baltimore 1 P.M.
 
-[![Bengals at Ravens](images/Bengals-at-Ravens.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Bengals-at-Ravens.jpg)
+[![Bengals at Ravens](/img/Bengals-at-Ravens.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Bengals-at-Ravens.jpg)
 
  
 
@@ -126,7 +126,7 @@ Ravens 17 Bengals 16
 
 ### Buffalo @ Chicago 1 P.M.
 
-[![Bills at Bears](images/Bills-at-Bears.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Bills-at-Bears.jpg)
+[![Bills at Bears](/img/Bills-at-Bears.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Bills-at-Bears.jpg)
 
 **What will happen:**
 
@@ -142,7 +142,7 @@ Bears 28 Bills 13
 
 ### Washington @ Houston 1 P.M.
 
-[![Washington at Texans](images/Washington-at-Texans.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Washington-at-Texans.jpg)
+[![Washington at Texans](/img/Washington-at-Texans.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Washington-at-Texans.jpg)
 
  
 
@@ -160,7 +160,7 @@ Redskins 27 Texans 14
 
 ### Tennessee @ Kansas City 1 P.M.
 
-[![Titans at Chiefs](images/Titans-at-Chiefs.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Titans-at-Chiefs.jpg)
+[![Titans at Chiefs](/img/Titans-at-Chiefs.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Titans-at-Chiefs.jpg)
 
 **What will happen:**
 
@@ -176,7 +176,7 @@ Chiefs 20 Titans 17
 
 ### New England @ Miami 1 P.M.
 
-[![Patriots at Dolphins](images/Patriots-at-Dolphins.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Patriots-at-Dolphins.jpg)
+[![Patriots at Dolphins](/img/Patriots-at-Dolphins.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Patriots-at-Dolphins.jpg)
 
 **What will happen:**
 
@@ -192,7 +192,7 @@ Patriots 27 Dolphins 17
 
 ### Carolina @ Tampa Bay 4:25 P.M.
 
-[![Panthers at Buccaneers](images/Panthers-at-Buccaneers.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Panthers-at-Buccaneers.jpg)
+[![Panthers at Buccaneers](/img/Panthers-at-Buccaneers.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Panthers-at-Buccaneers.jpg)
 
 **What will happen:**
 
@@ -208,7 +208,7 @@ Buccaneers 21 Panthers 17
 
 ### San Francisco @ Dallas 4:25 P.M.
 
-[![49ers at Cowboys](images/49ers-at-Cowboys.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/49ers-at-Cowboys.jpg)
+[![49ers at Cowboys](/img/49ers-at-Cowboys.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/49ers-at-Cowboys.jpg)
 
 **What will happen:**
 
@@ -224,7 +224,7 @@ Even with a loaded defense, I think the Niners will have their hands full with t
 
 ### Indianapolis @ Denver 8:30P.M.
 
-[![Colts at Broncos](images/Colts-at-Broncos.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Colts-at-Broncos.jpg)
+[![Colts at Broncos](/img/Colts-at-Broncos.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Colts-at-Broncos.jpg)
 
 **What will happen:**
 

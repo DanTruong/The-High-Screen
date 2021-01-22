@@ -6,7 +6,7 @@ title: "Weezer's Everything Will Be Alright In The End offers more than most exp
 date: "2014-10-17"
 ---
 
-\[caption id="attachment\_1226" align="alignnone" width="640"\][![(Photo provided by Flickr-monkeyatlarge)](images/weezer.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/weezer.jpg) (Photo provided by [Flickr-monkeyatlarge](http://http://www.flickr.com/photos/monkeyatlarge/55184381/in/photolist-5SQoR-7FRLP-c9uXew-5fGa2C-sWKPq-21f2WD-2c8ZR-8k1Ha2-5SQjn-66pLfg-7aK6Ky-61siF-8k1GSD-8k4Uy9-4fLDu-8k4TKb-8k1GDP-8k4Uhs-8k4TGu-8k4U4Q-63qU5-8k4UtG-8k1Gni-8k4U1C-8k1GGD-8k1GPR-8k1GrP-8k4UB5-8k4Tyf-drYpx6-drYyPQ-69XaFe-61siD-61siE-9Kdteo-drPBqE-drNFj4-5bs7t-9E2xUe-5t5WTk-886d7v-7TokgQ-drYpqx-5bs7L-25it8-22f2V-88aL2d-884A4B-887Lwq-5bsff))\[/caption\]
+\[caption id="attachment\_1226" align="alignnone" width="640"\][![(Photo provided by Flickr-monkeyatlarge)](/img/weezer.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/weezer.jpg) (Photo provided by [Flickr-monkeyatlarge](http://http://www.flickr.com/photos/monkeyatlarge/55184381/in/photolist-5SQoR-7FRLP-c9uXew-5fGa2C-sWKPq-21f2WD-2c8ZR-8k1Ha2-5SQjn-66pLfg-7aK6Ky-61siF-8k1GSD-8k4Uy9-4fLDu-8k4TKb-8k1GDP-8k4Uhs-8k4TGu-8k4U4Q-63qU5-8k4UtG-8k1Gni-8k4U1C-8k1GGD-8k1GPR-8k1GrP-8k4UB5-8k4Tyf-drYpx6-drYyPQ-69XaFe-61siD-61siE-9Kdteo-drPBqE-drNFj4-5bs7t-9E2xUe-5t5WTk-886d7v-7TokgQ-drYpqx-5bs7L-25it8-22f2V-88aL2d-884A4B-887Lwq-5bsff))\[/caption\]
 
  
 

@@ -6,7 +6,7 @@ title: "Die Hard: America's Greatest Christmas Movie"
 date: "2014-12-11"
 ---
 
-\[caption id="attachment\_2035" align="aligncenter" width="630"\][![(Photo provided by Flickr- Alex Eylar)](images/diehard.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/diehard.jpg) (Photo provided by [Flickr- Alex Eylar](http://www.flickr.com/photos/hoyvinmayvin/5193112579/in/photolist-8UU4rM-4pL5xu-ha2Dmq-dU85M3-axFk1X-49TLyJ-8nPQgJ-mvGjQV-85N9Xn-bKkdCa-2vEEnv-5FX4Va-8zinhp-arXgGd-2CRxSy-9cp4dF-9gefR8-5B2A2a-auHYmr-2eanbC-pX2BXe-5HJjbp-2CHwsj-2Bnxav-4p4kgD-4p8pdd-4DbdYP-UbCEd-4p8prY-c81jKu-c81iG7-hULUra-2CHwfy-XvrZJ-bYCYs-7D2t8x-2CD5sz-2at3wr-2CHxZS-2sxC9v-2CHwHs-2CHySQ-8Lz5eX-2CHxHU-2CD6tR-5Qz3Qf-2CHxuU-2CD7LK-2CD85P-2CHxfb))\[/caption\]
+\[caption id="attachment\_2035" align="aligncenter" width="630"\][![(Photo provided by Flickr- Alex Eylar)](/img/diehard.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/diehard.jpg) (Photo provided by [Flickr- Alex Eylar](http://www.flickr.com/photos/hoyvinmayvin/5193112579/in/photolist-8UU4rM-4pL5xu-ha2Dmq-dU85M3-axFk1X-49TLyJ-8nPQgJ-mvGjQV-85N9Xn-bKkdCa-2vEEnv-5FX4Va-8zinhp-arXgGd-2CRxSy-9cp4dF-9gefR8-5B2A2a-auHYmr-2eanbC-pX2BXe-5HJjbp-2CHwsj-2Bnxav-4p4kgD-4p8pdd-4DbdYP-UbCEd-4p8prY-c81jKu-c81iG7-hULUra-2CHwfy-XvrZJ-bYCYs-7D2t8x-2CD5sz-2at3wr-2CHxZS-2sxC9v-2CHwHs-2CHySQ-8Lz5eX-2CHxHU-2CD6tR-5Qz3Qf-2CHxuU-2CD7LK-2CD85P-2CHxfb))\[/caption\]
 
 ## There are few things that are inherently American in this world.
 

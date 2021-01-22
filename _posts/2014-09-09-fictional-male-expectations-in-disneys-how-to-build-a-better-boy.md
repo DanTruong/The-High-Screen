@@ -14,7 +14,7 @@ It's that time of the year again. The time where Disney lets loose the latest ve
 
 The story is about two genius high school girls named May (portrayed by Kellie Berglund) and Gabby (portrayed by China Anne McClain). May is teased by a popular girl and responds by inventing an imaginary boyfriend. Gabby then convinces May to make a sort of cyber boyfriend. Gabby hacks into May's father's computer in order to use his gaming software. They later find out that he is not a game software designer and Gabby actually hacked into the United States department of defense, and made a real robot boyfriend for May.
 
-\[caption id="attachment\_569" align="alignleft" width="200"\][![LOS ANGELES - MAR 13:  Kelli Berglund at the "Captain America: T](images/kelli_howtobuildabetterboy-200x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/kelli_howtobuildabetterboy.jpg) Kelli Berglund plays May, an intelligent girl with low self-esteem who craves popularity.\[/caption\]
+\[caption id="attachment\_569" align="alignleft" width="200"\][![LOS ANGELES - MAR 13:  Kelli Berglund at the "Captain America: T](/img/kelli_howtobuildabetterboy-200x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/kelli_howtobuildabetterboy.jpg) Kelli Berglund plays May, an intelligent girl with low self-esteem who craves popularity.\[/caption\]
 
 When hacking into the department of defense, Gabby asks May to input what she would prefer her boyfriend to be like. May starts off in an incredibly long list of impossible characteristics. After thinking twice on brown hair, she decides to make this 'perfect boyfriend' with blonde hair and blue eyes (insert eye roll), tall, sensitive, super polite, almost Canadian (Justin Bieber?), brave, wise beyond his years (Okay, not Justin Bieber), always says the right thing, "one look and he knows how I feel"… the list goes on.
 
@@ -26,7 +26,7 @@ The government proves at first to be a better antagonist to May's love for the r
 
 May’s best friend, Gabby Harrison, is depicted as a strong, mature character who thinks for herself. She wants to study hard and work harder in order to achieve something, and she is constantly telling May that the strongest women in history didn’t need anyone else. Sadly, as the ending of the movie nears, her fortitude tumbles and her strength quickly slips away as she is dumbed down — suddenly she has a boyfriend of her own — suggesting that a date to the homecoming dance is more important than career aspirations.
 
-\[caption id="attachment\_570" align="alignright" width="200"\][![China Anne McClain is Gabby, the confident best-friend to May and the brains of the operation. ](images/China_howtobuildabetterboy-200x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/China_howtobuildabetterboy.jpg) China Anne McClain is Gabby, the confident best-friend to May and the brains of the operation.\[/caption\]
+\[caption id="attachment\_570" align="alignright" width="200"\][![China Anne McClain is Gabby, the confident best-friend to May and the brains of the operation. ](/img/China_howtobuildabetterboy-200x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/China_howtobuildabetterboy.jpg) China Anne McClain is Gabby, the confident best-friend to May and the brains of the operation.\[/caption\]
 
 May is a complete contrast to Gabby, depicted as a weak-willed girl with a low self-esteem who wants to be popular. Throughout the movie, May shows no signs of growth. At one point she exclaims that Albert “is the best thing that has ever happened to me!”
 

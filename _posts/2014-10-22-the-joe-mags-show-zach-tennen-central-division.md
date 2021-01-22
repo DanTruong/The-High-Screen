@@ -6,7 +6,7 @@ title: "The Joe Mags Show — Zach Tennen, Central Division"
 date: "2014-10-22"
 ---
 
-\[caption id="attachment\_1347" align="alignnone" width="400"\][![Joakim Noah. (Photo taken by Keith Allison)](images/noah-e1414081640803.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/noah-e1414081640803.jpg) Joakim Noah. (Photo taken by Keith Allison)\[/caption\]
+\[caption id="attachment\_1347" align="alignnone" width="400"\][![Joakim Noah. (Photo taken by Keith Allison)](/img/noah-e1414081640803.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/noah-e1414081640803.jpg) Joakim Noah. (Photo taken by Keith Allison)\[/caption\]
 
  
 

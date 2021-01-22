@@ -6,7 +6,7 @@ title: "The Joe Mags Show — Zach Tennen, Atlantic Division"
 date: "2014-10-20"
 ---
 
-\[caption id="attachment\_1259" align="alignnone" width="300"\][![(Photo taken by michalkajzerek)](images/Lowry-300x243.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Lowry.jpg) (Photo taken by michalkajzerek)\[/caption\]
+\[caption id="attachment\_1259" align="alignnone" width="300"\][![(Photo taken by michalkajzerek)](/img/Lowry-300x243.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Lowry.jpg) (Photo taken by michalkajzerek)\[/caption\]
 
  
 

@@ -22,7 +22,7 @@ He eventually recovered, but by that time more trouble had surfaced. He had been
 
 Considering all that and his advanced age, we’re looking at a hell of a comeback story. The question remains: can he keep it up?
 
-\[caption id="attachment\_2752" align="aligncenter" width="640"\][![(Photo by Keith Allison)](images/Rodriguez.jpg)](https://www.flickr.com/photos/keithallison/3514026683/in/photolist-6mwiGX-5fBWFB-6mwiA4-4wj3po-6mAs8o-6mwkN6-5fsrVo-4weV5T-6mArKm-4RRTU1-4wcJWY-9B5V5c-4w8CRk-6mArh3-4w8HmZ-4RMKZV-6mwisc-6mwqLH-6mArsY-9B6C7p) (Photo by Keith Allison)\[/caption\]
+\[caption id="attachment\_2752" align="aligncenter" width="640"\][![(Photo by Keith Allison)](/img/Rodriguez.jpg)](https://www.flickr.com/photos/keithallison/3514026683/in/photolist-6mwiGX-5fBWFB-6mwiA4-4wj3po-6mAs8o-6mwkN6-5fsrVo-4weV5T-6mArKm-4RRTU1-4wcJWY-9B5V5c-4w8CRk-6mArh3-4w8HmZ-4RMKZV-6mwisc-6mwqLH-6mArsY-9B6C7p) (Photo by Keith Allison)\[/caption\]
 
 Since A-Rod isn’t playing defense (he’s been used mostly as a designated hitter) or swiping bases, the vast majority of his value comes at the plate, meaning contact, power and patience are mostly responsible for his success.
 

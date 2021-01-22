@@ -20,7 +20,7 @@ _Destiny_ has lore with great depth and breadth, but you wouldn’t be able to t
 
 With these attributes in combination, the campaign told in _Destiny_ is pretty anticlimactic. Much like _Titanfall_ before it, _Destiny_ does a great job of creating a world that people want to know more about, but both games choose to focus more on multiplayer rather than telling a story. For those looking for an epic space adventure, you will be disappointed in how _Destiny_ chooses to passively tell its story — by choosing to rely on players to go and research information outside of the game, the main story missions become vague and confusing.
 
-\[caption id="attachment\_1021" align="alignnone" width="300"\][![Destiny is a beautiful game, but it has no shortage of aspects to improve in its future versions. (Image courtesy of BagoGames.)](images/Destiny-300x157.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Destiny.jpg) Destiny is a beautiful game, but it has no shortage of aspects to improve in its future versions.  
+\[caption id="attachment\_1021" align="alignnone" width="300"\][![Destiny is a beautiful game, but it has no shortage of aspects to improve in its future versions. (Image courtesy of BagoGames.)](/img/Destiny-300x157.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Destiny.jpg) Destiny is a beautiful game, but it has no shortage of aspects to improve in its future versions.  
 (Image courtesy of BagoGames.)\[/caption\]
 
  

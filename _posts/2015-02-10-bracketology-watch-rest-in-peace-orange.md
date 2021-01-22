@@ -6,7 +6,7 @@ author: "Ross Bentley"
 date: "2015-02-10"
 ---
 
-\[caption id="attachment\_2521" align="alignleft" width="426"\][![Orange Basketball. (Provided by Bill Bryan)](images/Orange.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/Orange.jpg) Orange Basketball. [(Provided by Bill Bryan)](http://www.flickr.com/photos/clecameraguy/11214739665/in/photolist-i61tor-8z92s5-e6HuJV-e6P9V1-e6P9Qw-e6P9Lu-bLrQ94-bxx9uj-bLrQsH-4q52N-oyMqCk-6jBUFh-oyMqX8-5J6sXq-7CnDBD-fHqxv3-7zuRkB-5J6tzY-9tQMnX-9tTJNb-9tQMFB-9tTJuE-9tTJh1-9tTK6u-9tQLVp-9tTKxu-9tTKcs-9tQMgV-ain7wg-k3x9dk-oz4Ffi-7eEAyQ-7zyuwh-5J29BR-e6HuFg-e6HuC6-e6HuAz-e6P9HQ-e6HuGg-7zuQma-7zywEY-7zyufj-7zuSt8-7zuVyH-7zuTuZ-7zyvX7-7zuLmH-7zyuEy-7zuJPX-7zytP7)\[/caption\]
+\[caption id="attachment\_2521" align="alignleft" width="426"\][![Orange Basketball. (Provided by Bill Bryan)](/img/Orange.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/Orange.jpg) Orange Basketball. [(Provided by Bill Bryan)](http://www.flickr.com/photos/clecameraguy/11214739665/in/photolist-i61tor-8z92s5-e6HuJV-e6P9V1-e6P9Qw-e6P9Lu-bLrQ94-bxx9uj-bLrQsH-4q52N-oyMqCk-6jBUFh-oyMqX8-5J6sXq-7CnDBD-fHqxv3-7zuRkB-5J6tzY-9tQMnX-9tTJNb-9tQMFB-9tTJuE-9tTJh1-9tTK6u-9tQLVp-9tTKxu-9tTKcs-9tQMgV-ain7wg-k3x9dk-oz4Ffi-7eEAyQ-7zyuwh-5J29BR-e6HuFg-e6HuC6-e6HuAz-e6P9HQ-e6HuGg-7zuQma-7zywEY-7zyufj-7zuSt8-7zuVyH-7zuTuZ-7zyvX7-7zuLmH-7zyuEy-7zuJPX-7zytP7)\[/caption\]
 
 Another weird, crazy week in college basketball. My beloved Syracuse Orange won't be going to the NCAA Tournament this year, and it has nothing to do with their performance on the court ([okay, it has a little to do with that](http://www.sportsonearth.com/article/108431192/syracuse-orangemen-self-imposed-ban-jim-boeheim-ncaa)).
 
@@ -232,7 +232,7 @@ There are no ranked matchups tonight, but what we do get is several fringe bubbl
 
 Temple, is in the field right now largely due to their walloping of Kansas, the current #1 team in the RPI.
 
-The Owls have been up and down in the AAC and are in deserpate need of another signature win![](images/arrow-10x10.png). It's good news then, that they host Cincinnati tonight, a team that's currently in a tie with them for third place in the American.
+The Owls have been up and down in the AAC and are in deserpate need of another signature win![](/img/arrow-10x10.png). It's good news then, that they host Cincinnati tonight, a team that's currently in a tie with them for third place in the American.
 
 **New Mexico @ Colorado State **
 

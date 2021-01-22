@@ -14,13 +14,13 @@ It's ok if those references didn't hit home because 2007 was a long time ago. He
 
 Plainly speaking, the 2007 Jaguars make a strong case for being one of the last bastions of truly smashmouth football. I know some will cite today's Seahawks and 49ers, but the 2007 Jaguars didn't rely on nimble QB's to gash defenses for thirds of the field at a time. (Oh wait, [they kinda did](http://www2.pictures.gi.zimbio.com/Tennessee+Titans+v+Jacksonville+Jaguars+jSzBIUEANZel.jpg), but more on that in a second.)
 
-\[caption id="attachment\_109" align="aligncenter" width="192"\][!['07 Offensive Rankings](images/THS-JAGSOFFENSE.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/THS-JAGSOFFENSE.jpg) '07 Offensive Rankings\[/caption\]
+\[caption id="attachment\_109" align="aligncenter" width="192"\][!['07 Offensive Rankings](/img/THS-JAGSOFFENSE.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/THS-JAGSOFFENSE.jpg) '07 Offensive Rankings\[/caption\]
 
 The Jaguars offense won over blue collar fans with a bruising, two-headed running game featuring respected veteran Fred Taylor and the squat yet explosive running-style of the man sometimes mistakenly referred to as Maurice Jones-Drew and correctly called "[Pocket Hercules](http://www.youtube.com/watch?v=B0gEFpzeNqs)." The pair each amassed over 1,000 all-purpose yards and combined for 14 total touchdowns.
 
 Then there was the revelation of David Garrard. After battling Crohn's disease and Byron Leftwich for the better part of five years, Garrard did well enough to win the job in the preseason of 2007. The former fourth-rounder responded by leading his team to the postseason despite only playing 12 games, throwing an impressive 18 TDs in the process.
 
-\[caption id="attachment\_110" align="aligncenter" width="192"\][![THS-JAGSDEFENSE](images/THS-JAGSDEFENSE.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/THS-JAGSDEFENSE.jpg) Jaguars' Defense c.2007\[/caption\]
+\[caption id="attachment\_110" align="aligncenter" width="192"\][![THS-JAGSDEFENSE](/img/THS-JAGSDEFENSE.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/THS-JAGSDEFENSE.jpg) Jaguars' Defense c.2007\[/caption\]
 
 The balanced offense combined with a stout defense that [prided itself on John Henderson's intensity](http://www.youtube.com/watch?v=ruh4_xud37c) and it's ability to force turnovers made for a formidable opponent. If not for Peyton Manning, it's conceivable to think that the Jaguars would have had a legitimate chance to win the division in 2007.
 
@@ -30,7 +30,7 @@ In reality, Jacksonville had become the biggest thorn in Pittsburgh's side outsi
 
 The following week, Jacksonville fell, 31-20, to the undefeated Patriots. But it wasn't the blowout that was expected; David Garrard even managed to out gain Brady through the air. Even though New England won the game, all together, 2007 was as impressive a season as any in Jaguars history. Garrard outplayed his 4th round draft status, the Jaguars proved they could hold their own in the competitive AFC South, and a star was born in Maurice Jones-Drew. It seemed that the year was the initiation of something special, not the end.
 
-[![graph(2)](images/graph2-300x231.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/graph2.jpg)Then came 2008. Then 2009. Then 2010 and so on and so on. Regression and stagnation were common in every position group that didn't include Jones-Drew, and each year would produce a disappointment that would somehow be more painful than the last.
+[![graph(2)](/img/graph2-300x231.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/graph2.jpg)Then came 2008. Then 2009. Then 2010 and so on and so on. Regression and stagnation were common in every position group that didn't include Jones-Drew, and each year would produce a disappointment that would somehow be more painful than the last.
 
 Whether it was an offensive line belabored with injuries  and [tragedy ](http://www.news4jax.com/news/Richard-Collier-Speaks-Out-About-Shooting/2059842) in 2008, high profile busts in Derrick Harvey in '08, Tyson  Alualu in '09, and Blaine Gabbert in '10, first round receivers that can't stay off the NFL's naughty list, the lack of developing defensive playmakers, and the running of MJD into the ground, a once soaring organization came crashing down.
 
@@ -79,11 +79,11 @@ With the turbulent and ever-changing status of super-talented but super-undiscip
 
 With the 39th pick, Jacksonville took spell check's arch nemesis, one Marqise Lee out of USC. Entering the 2013 college season, Lee was considered 1b to Sammy Watkins' 1a in terms of WR rankings. But the Trojan struggled with health, drops and poor quarterback play in 2013, causing him to drop to the waiting Jags in round two.
 
-\[caption id="attachment\_126" align="aligncenter" width="638"\][![Marqise Lee Stats](images/Marqise-Lee-Stats1.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/Marqise-Lee-Stats1.jpg) via cbssports.com\[/caption\]
+\[caption id="attachment\_126" align="aligncenter" width="638"\][![Marqise Lee Stats](/img/Marqise-Lee-Stats1.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/Marqise-Lee-Stats1.jpg) via cbssports.com\[/caption\]
 
 Caldwell then pulled a power play for Penn State's Allen Robinson, sending a third and fifth round pick to San Francisco in exchange for the 61st overall pick with which they selected the big bodied pass-catcher. At 6-3, 220 lbs, Robinson has a deceptive size/speed combo that could provide immediate red zone benefits, but still needs work in refining his route running and overall consistency.
 
-\[caption id="attachment\_125" align="aligncenter" width="634"\][![via cbssports.com](images/Allen-Robinson-Stats.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/Allen-Robinson-Stats.jpg) via cbssports.com\[/caption\]
+\[caption id="attachment\_125" align="aligncenter" width="634"\][![via cbssports.com](/img/Allen-Robinson-Stats.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/Allen-Robinson-Stats.jpg) via cbssports.com\[/caption\]
 
 Although both wide receivers were second rounders, we again see somewhat of an Atlanta approach to Caldwell's thinking. Matt Ryan has benefited greatly when Julio Jones (whom the Falcons traded up for) and Roddy White are both on the field. One has to think that Caldwell is looking for similar results from the duo of Lee and Robinson who also matchup closely in size to White and Jones respectively.
 
@@ -93,7 +93,7 @@ Their selections also bolster the argument that Bortles should start sooner rath
 
 Perhaps the biggest similarity to the '08 Falcons and the '14 Jaguars lies in the running back situation. Much like the Falcons pre-free agency in 2008, the Jaguars had next to nothing in the way of running backs following Rashad Jennings' defection to the Giants. Michael Turner, a bruising running back who served as a long-time backup to LaDainian Tomlinson was the answer to Atlanta's prayers from 2008-2011. Toby Gerhart, another bruising back and long-time backup to Adrian Peterson, comes to Jacksonville under similar circumstances in 2014.
 
-\[caption id="attachment\_120" align="aligncenter" width="795"\][![MTurner v. T.Gerhart](images/MTurner-v.-T.Gerhart.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/MTurner-v.-T.Gerhart.jpg) Comparing careers as backups\[/caption\]
+\[caption id="attachment\_120" align="aligncenter" width="795"\][![MTurner v. T.Gerhart](/img/MTurner-v.-T.Gerhart.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/07/MTurner-v.-T.Gerhart.jpg) Comparing careers as backups\[/caption\]
 
 As made evident in the above chart, there's plenty of similarities in each player's production as a backup. They don't end with production or experience either; only one inch and three pounds separate the two, with Gerhart being listed at 6-0, 234 and Turner at 5-11, 237. The one major discrepancy (although a case can be made for fumbles) is Gerhart is clearly the superior receiver. Sure he didn't have to contend with Vincent Jackson and Antonio Gates for targets, but given the fact that Minnesota, excluding the 2009 season, has never had a QB at the level of Phillip Rivers, there isn't much to debate.
 

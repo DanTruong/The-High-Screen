@@ -16,7 +16,7 @@ In an industry of over saturated with films depicting soldiers at war, a well to
 
 This change in perception of war is what adds to the dramatic nature and emotional impact that _American Sniper_ has on the viewer. While the war in the Middle East doesn’t bleed over into American culture the same way wars of the past did, _American Sniper_ brings the horrors of war to the viewer, giving them a new level of appreciation for what has been happening. Ultimately that is what Clint Eastwood is trying to achieve; _American Sniper_ is a tribute and thank you to the soldiers overseas acknowledging both the mental and physical trials that they have been enduring.
 
-\[caption id="attachment\_2414" align="alignright" width="300"\][![(Photo by Larry Busacca/Getty Images for Relativity Media)](images/bradleycooper.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/bradleycooper.jpg) (Photo by Larry Busacca/Getty Images for Relativity Media)\[/caption\]
+\[caption id="attachment\_2414" align="alignright" width="300"\][![(Photo by Larry Busacca/Getty Images for Relativity Media)](/img/bradleycooper.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/bradleycooper.jpg) (Photo by Larry Busacca/Getty Images for Relativity Media)\[/caption\]
 
 _American Sniper_ hits all of the right notes without ever pushing the boundaries. The film creates a likable hero that struggles through adversary, but clearly draws the line on good and evil. There is a thin veil of grey in _American Sniper_ that is never fully fleshed out or explored. This holds the movie back from being something truly special.
 

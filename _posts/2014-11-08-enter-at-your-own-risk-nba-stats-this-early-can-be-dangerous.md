@@ -16,7 +16,7 @@ Meanwhile, over in BK, the Nets are ripping the, well, nets: they are second in 
 
 With that said, plenty of numbers have caught my eye since the season kicked off in late-October — both as potentially phony figures and outstanding developments from individual players and teams. Let’s take a look at some of these numbers while applying extreme caution and determine if they are for real or not.
 
-\[caption id="attachment\_1347" align="alignleft" width="186"\][![Joakim Noah. (Photo taken by Keith Allison)](images/noah-186x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/noah-e1414081640803.jpg) Joakim Noah missing games has led to the Bulls being dead last in defensive rebounding. But obviously the Bulls are a great rebounding team. Sometimes numbers DO lie. (Photo taken by Keith Allison)\[/caption\]
+\[caption id="attachment\_1347" align="alignleft" width="186"\][![Joakim Noah. (Photo taken by Keith Allison)](/img/noah-186x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/noah-e1414081640803.jpg) Joakim Noah missing games has led to the Bulls being dead last in defensive rebounding. But obviously the Bulls are a great rebounding team. Sometimes numbers DO lie. (Photo taken by Keith Allison)\[/caption\]
 
 For real:
 

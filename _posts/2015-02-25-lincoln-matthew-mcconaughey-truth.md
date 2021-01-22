@@ -6,7 +6,7 @@ title: "There and Back Again, in a Lincoln: Matthew McConaughey and his righteou
 date: "2015-02-25"
 ---
 
-\[caption id="attachment\_2617" align="aligncenter" width="640"\][![Matthew McConaughey (Photo provided by  Denise Cross Photography)](images/2859150502_6670cd1cde_z.jpg)](https://www.flickr.com/photos/ldcross/2859150502/in/photolist-5mDTQj-bVw2LV-bAcBra-4EQ77A-jFc3MY-3W8FN-4Rg9g7-5QKLRT-5mDSPm-PoqC-mgSdKJ-6jRzrx-6jRznv-fSZ5iC-fSXXbR-fSXXLP-7qVQgX-d2hXh7-odSzT3-BpbEM-bq36tK-98Wxw3) Matthew McConaughey (Photo provided by Denise Cross Photography)\[/caption\]
+\[caption id="attachment\_2617" align="aligncenter" width="640"\][![Matthew McConaughey (Photo provided by  Denise Cross Photography)](/img/2859150502_6670cd1cde_z.jpg)](https://www.flickr.com/photos/ldcross/2859150502/in/photolist-5mDTQj-bVw2LV-bAcBra-4EQ77A-jFc3MY-3W8FN-4Rg9g7-5QKLRT-5mDSPm-PoqC-mgSdKJ-6jRzrx-6jRznv-fSZ5iC-fSXXbR-fSXXLP-7qVQgX-d2hXh7-odSzT3-BpbEM-bq36tK-98Wxw3) Matthew McConaughey (Photo provided by Denise Cross Photography)\[/caption\]
 
 In November of 2014, it was reported by the Lincoln Motor Company that [its sales were up 25 percent in October](http://www.hollywoodreporter.com/news/lincoln-sales-surge-matthew-mcconaughey-745926), or since the infamous advertisements starring Matthew McConaughey began. McConaughey’s persona in the Lincoln advertisements is reminiscent to the character he plays on HBO’s _True Detective —_ nihilistic and detached. The director of the ads is Nicholas Winding Refn, who begot 2011’s _Drive_, and who was later responsible for 2013’s _Only God Forgives_. The legacy that Refn has started for himself, and the recent development of McConaughey’s career, are eerily compatible. 
 

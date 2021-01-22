@@ -62,7 +62,7 @@ As for Carolina’s last-place odds — it really depends on how much the shooti
 
 **1\. Edmonton**
 
-\[caption id="attachment\_2236" align="alignright" width="300"\][![David Perron (Photo provided by Connor Mah)](images/edmonton-player-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/edmonton-player.jpg) David Perron [(Photo provided by Connor Mah)](http://www.flickr.com/photos/40263796@N05/15527083971/in/photolist-bpJ8Tu-f77mGj-aQ4Tv6-aRHKc8-aRHP3e-aQFVpi-f6YdMM-f6WKQZ-f7aud7-aVbgvz-aQFSGP-aRJrJz-aQFEtr-aQ4Rmx-aRJoDp-aVbiyr-pE5n7k-3sRatV-hahXoA-4LynCE)\[/caption\]
+\[caption id="attachment\_2236" align="alignright" width="300"\][![David Perron (Photo provided by Connor Mah)](/img/edmonton-player-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/edmonton-player.jpg) David Perron [(Photo provided by Connor Mah)](http://www.flickr.com/photos/40263796@N05/15527083971/in/photolist-bpJ8Tu-f77mGj-aQ4Tv6-aRHKc8-aRHP3e-aQFVpi-f6YdMM-f6WKQZ-f7aud7-aVbgvz-aQFSGP-aRJrJz-aQFEtr-aQ4Rmx-aRJoDp-aVbiyr-pE5n7k-3sRatV-hahXoA-4LynCE)\[/caption\]
 
 The Oilers are last overall with 27 points in 40 games. They’ve earned six points in the past four games but [Edmonton made a trade Friday](http://blogs.edmontonjournal.com/2015/01/05/craig-mactavish-got-plenty-in-return-for-david-perron/#__federated=1) that makes it seem like they’re ready to give up on the season. They traded two-time 20-goal scorer David Perron for Rob Klinkhammer and a first round pick.
 

@@ -6,7 +6,7 @@ title: "Will the Real Shia LaBeouf Please Stand Up?"
 date: "2014-10-29"
 ---
 
-\[caption id="attachment\_1375" align="alignleft" width="242"\][![(Photo by Tim P. Whitby/Getty Images/Image.net)](images/ShiaL_Fury-242x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/ShiaL_Fury.jpg) **Shia LaBeouf: a human.** (Photo by Tim P. Whitby/Getty Images/Image.net)\[/caption\]
+\[caption id="attachment\_1375" align="alignleft" width="242"\][![(Photo by Tim P. Whitby/Getty Images/Image.net)](/img/ShiaL_Fury-242x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/ShiaL_Fury.jpg) **Shia LaBeouf: a human.** (Photo by Tim P. Whitby/Getty Images/Image.net)\[/caption\]
 
 I would like to start off by apologizing for my recent behavior, and I would also like to thank Joe Manganiello for the opportunity to voice my regret to all of you. Let me get right to it then. I’m sorry woman at the Starbuck’s drive-thru for addressing you as “Yo Lady!” when you gave me the stink face after you demanded to speak to my manager because you did not like my tone. I’m sorry people of the party who I successfully tried to pick a fight with. I’m sorry that I am not brave enough to be any more specific about my personal failures, and I’m sorry that I lack the courage to recall any more of them — I have them stored comfortably beneath mouse chewed tarps and spider-webs in a damp, cold corner of my mind.
 

@@ -14,7 +14,7 @@ After all, it’s been a pretty wild start to the season, with [upsets](http://w
 
 You know we’re in the thick of things when Joe Lunardi, ESPN’s resident Bracketoligist, releases his first [bracket](http://espn.go.com/mens-college-basketball/bracketology) of the season. While I’m no Doctor of Bracketology like Lunardi — although I do have a degree from St. Joseph’s University in Bracketology ([I’m not kidding](https://twitter.com/thatjoemags/status/553651848704294912)) — I’ll do my best to breakdown what you need to know from the first of many mock brackets released this season. (Note: This bracketology was released Monday morning January 5th. For those unfamiliar, teams in all CAPS simulate conference champions, while lowercase teams are at large bids.)
 
-\[caption id="attachment\_2267" align="alignright" width="300"\][![Kentucky could run the table en route to earning a top seed. (Photo provided by Megan Robertson)](images/6777099456_d34d289631_o-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/6777099456_d34d289631_o-e1420835954649.jpg) Kentucky could run the table en route to earning a top seed. ([Photo provided by Megan Robertson](http://www.flickr.com/photos/megrobertson/6777099456/in/photolist-o3E7Jx-bjSpym-bxMgTx-bxMgYe-bxMh7V-o3EcfB-nLbyWg-nLaMkQ-nLaY4b-o3EdDD-nLaWN5-nLbBjn-o3EcZH-nL9fUv-o5rsJe-o1AhwQ-o3n2JH-o3E92T-o3CJEp-nLaHRp))\[/caption\]
+\[caption id="attachment\_2267" align="alignright" width="300"\][![Kentucky could run the table en route to earning a top seed. (Photo provided by Megan Robertson)](/img/6777099456_d34d289631_o-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/6777099456_d34d289631_o-e1420835954649.jpg) Kentucky could run the table en route to earning a top seed. ([Photo provided by Megan Robertson](http://www.flickr.com/photos/megrobertson/6777099456/in/photolist-o3E7Jx-bjSpym-bxMgTx-bxMgYe-bxMh7V-o3EcfB-nLbyWg-nLaMkQ-nLaY4b-o3EdDD-nLaWN5-nLbBjn-o3EcZH-nL9fUv-o5rsJe-o1AhwQ-o3n2JH-o3E92T-o3CJEp-nLaHRp))\[/caption\]
 
 **MIDWEST**
 
@@ -202,6 +202,6 @@ So there you have it, the first bracketology of the season. With still two month
 
 With conference play kicking off, now is the time for teams to really begin emerging from the pack, so if you can, treat yourself to some excellent college basketball in between NFL playoff games this week.
 
-[![Ross Bentley 2](images/ross-2.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/ross-2.jpg)
+[![Ross Bentley 2](/img/ross-2.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/ross-2.jpg)
 
 Ross Bentley (@ImRossBentley) is a staff writer for The High Screen. He is a Graduate Sports Journalism student at Quinnipiac University and a graduate of SUNY Oswego.

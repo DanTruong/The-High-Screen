@@ -6,7 +6,7 @@ title: "Jackson Browne for President"
 date: "2014-10-16"
 ---
 
-\[caption id="attachment\_1214" align="alignleft" width="300"\][![(Photo taken by Alan Light)](images/Browne-e1413483384931.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Browne-e1413483384931.jpg) (Photo taken by Alan Light)\[/caption\]
+\[caption id="attachment\_1214" align="alignleft" width="300"\][![(Photo taken by Alan Light)](/img/Browne-e1413483384931.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Browne-e1413483384931.jpg) (Photo taken by Alan Light)\[/caption\]
 
 Jackson Browne released a new album entitled _Standing in the Breach_ this month.  If you haven’t listened to it yet, I recommend that you sit down in one of your favorite chairs after work tonight, armed with a drink — coffee or otherwise — and whatever you might smoke, and really listen to Browne do what he’s been on the brink of doing since his first album since in 1972.
 

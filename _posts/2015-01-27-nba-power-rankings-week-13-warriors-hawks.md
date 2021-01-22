@@ -8,7 +8,7 @@ date: "2015-01-27"
 
 _As the NBA quickly approaches the All-Star break and trade deadline, here's a look at where all 30 teams stand._
 
-\[caption id="attachment\_1617" align="alignleft" width="300"\][![Klay Thompson is, umm, really, real good. (Photo taken by Matthew Addie)](images/Klay-Thompson-300x225.jpg)](http://www.flickr.com/photos/heelsports/8531340385/in/photolist-dZTmgB-e1UVMd-dnEQGQ-dyrYCL-dnES3F-dymv4r-e1Pjqi-e1Phek-e1UV6J-e1UX8d-e1UVGY-dyCnue-dyHQL1-dyHR17-dnFb3Z-dnEQzu-dnEWvN-ehMHR5-ehMGzL-ehMHtu-ehMHFq-dnEWt3-dnEQFs-dnES5x-dnELc6-dnES18-dnF9Fr-dnNXHA-dnEQK1-dnEQHL-dnEQyj-dyrYwE-dyrYFC-dyrYzw-dymvbt-dymv9V-dymv1p-dymv74-dyrYu9-dymuVR-egSmrC-hsKHce-dZZ6mh-q6m6yz-dZTqwV) Klay Thompson. (Photo taken by Matthew Addie)\[/caption\]
+\[caption id="attachment\_1617" align="alignleft" width="300"\][![Klay Thompson is, umm, really, real good. (Photo taken by Matthew Addie)](/img/Klay-Thompson-300x225.jpg)](http://www.flickr.com/photos/heelsports/8531340385/in/photolist-dZTmgB-e1UVMd-dnEQGQ-dyrYCL-dnES3F-dymv4r-e1Pjqi-e1Phek-e1UV6J-e1UX8d-e1UVGY-dyCnue-dyHQL1-dyHR17-dnFb3Z-dnEQzu-dnEWvN-ehMHR5-ehMGzL-ehMHtu-ehMHFq-dnEWt3-dnEQFs-dnES5x-dnELc6-dnES18-dnF9Fr-dnNXHA-dnEQK1-dnEQHL-dnEQyj-dyrYwE-dyrYFC-dyrYzw-dymvbt-dymv9V-dymv1p-dymv74-dyrYu9-dymuVR-egSmrC-hsKHce-dZZ6mh-q6m6yz-dZTqwV) Klay Thompson. (Photo taken by Matthew Addie)\[/caption\]
 
 **30\. Sixers **(8-37)
 

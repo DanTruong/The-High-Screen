@@ -6,7 +6,7 @@ title: "Moraima Goes to Hollywood: A Classic Film Challenge"
 date: "2015-01-06"
 ---
 
-## [![Basic RGB](images/classicfilmchallenge.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/classicfilmchallenge.jpg)
+## [![Basic RGB](/img/classicfilmchallenge.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/classicfilmchallenge.jpg)
 
 ## The slow, calm nature of January makes it ideal for afternoon naps, fake resolutions and classical films.
 

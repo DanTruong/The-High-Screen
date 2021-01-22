@@ -10,7 +10,7 @@ St. Louis is up, Los Angeles is down and Anaheim and Montreal are maintaining so
 
 1\. Tampa Bay (last week: 8) – The Lightning already have seven guys with double-digit point totals while the team has scored a league-leading 60 goals.
 
-\[caption id="attachment\_1799" align="alignleft" width="300"\][![Marc-Andre Fleury in goal. (Photo credit to Mike Durkin) ](images/5310126690_62f2bbaf60_o-300x176.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/5310126690_62f2bbaf60_o-e1415895134356.jpg) Marc-Andre Fleury in goal. (Photo credit to Mike Durkin)\[/caption\]
+\[caption id="attachment\_1799" align="alignleft" width="300"\][![Marc-Andre Fleury in goal. (Photo credit to Mike Durkin) ](/img/5310126690_62f2bbaf60_o-300x176.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/5310126690_62f2bbaf60_o-e1415895134356.jpg) Marc-Andre Fleury in goal. (Photo credit to Mike Durkin)\[/caption\]
 
 2\. Pittsburgh (16) – Getting stomped 5-0 by the Rangers hurts, but the Pens still have a league-best +23 goal differential.
 

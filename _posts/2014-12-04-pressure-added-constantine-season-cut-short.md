@@ -6,7 +6,7 @@ title: "Weekly Recap: Pressure applied to Constantine as season is cut short"
 date: "2014-12-04"
 ---
 
-\[caption id="attachment\_1989" align="aligncenter" width="620"\][![Matt Ryan as John Constantine -- Photo by: (Daniel McFadden/NBC)](images/Constantine.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/Constantine.jpg) Matt Ryan as John Constantine -- Photo by: (Daniel McFadden/NBC)\[/caption\]
+\[caption id="attachment\_1989" align="aligncenter" width="620"\][![Matt Ryan as John Constantine -- Photo by: (Daniel McFadden/NBC)](/img/Constantine.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/Constantine.jpg) Matt Ryan as John Constantine -- Photo by: (Daniel McFadden/NBC)\[/caption\]
 
 Once the envy of all the networks for its Thursday evening empire, NBC is no longer defined by its cutting edge content, but by its dangerous combination of insipidity and impatience.
 

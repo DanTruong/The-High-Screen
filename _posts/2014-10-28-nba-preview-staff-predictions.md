@@ -46,7 +46,7 @@ So who is left? I'll be a lone wolf here and pick Chris Paul. He's been the best
 
 5) My crazy prediction? The Philadelphia 76ers will be the worst team in NBA history. In an 82-game season, the '72-'73 Sixers still hold the record with only nine wins. This years Sixers will win eight games. 8-74, I'm calling it right now. Look at their roster?! Other than Michael Carter-Williams and (maybe) Nerlens Noel, none of their "best" players would crack the rotation of any good NBA team. This team is set up to fail, and fail they will. Good job owners, this is what you asked for when you voted down lottery reform.
 
-\[caption id="attachment\_1487" align="alignnone" width="211"\][![Anthony Davis. (Photo taken by Keith Allison)](images/AnthonyDavis-211x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/AnthonyDavis.jpg) Anthony Davis. (Photo taken by Keith Allison)\[/caption\]
+\[caption id="attachment\_1487" align="alignnone" width="211"\][![Anthony Davis. (Photo taken by Keith Allison)](/img/AnthonyDavis-211x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/AnthonyDavis.jpg) Anthony Davis. (Photo taken by Keith Allison)\[/caption\]
 
  
 

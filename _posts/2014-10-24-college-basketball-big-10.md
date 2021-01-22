@@ -274,7 +274,7 @@ Joining Lee in the post is starting center Amir Williams, who is a good defensiv
 
 Ohio State has the pieces to not only equal last year’s team, but surpass them. They will need Lee and Russell, who have never played a game in an OSU jersey, to meet expectations for them to get there, but Matta should have all he needs to get 25 wins out of this team.
 
-\[caption id="attachment\_1355" align="alignnone" width="640"\][![(Photo taken by Richard Hurd)](images/6937289883_3b565b8c44_z.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/6937289883_3b565b8c44_z.jpg) Bo Ryan and his 2012 Wisconsin Badgers. (Photo taken by Richard Hurd)\[/caption\]
+\[caption id="attachment\_1355" align="alignnone" width="640"\][![(Photo taken by Richard Hurd)](/img/6937289883_3b565b8c44_z.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/6937289883_3b565b8c44_z.jpg) Bo Ryan and his 2012 Wisconsin Badgers. (Photo taken by Richard Hurd)\[/caption\]
 
  
 

@@ -6,7 +6,7 @@ title: "Middle-Earth: Shadow of Mordor Review"
 date: "2014-10-14"
 ---
 
-\[caption id="attachment\_1168" align="alignnone" width="500"\][![(Image property of BAGOgames)](images/15505966446_01f9281947_o.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/15505966446_01f9281947_o.jpg) (Image property of BAGOgames)\[/caption\]
+\[caption id="attachment\_1168" align="alignnone" width="500"\][![(Image property of BAGOgames)](/img/15505966446_01f9281947_o.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/15505966446_01f9281947_o.jpg) (Image property of BAGOgames)\[/caption\]
 
  
 
@@ -18,7 +18,7 @@ The story centers on revenge: both for Talion who witnessed his wife and son bru
 
 Talion and the wraith are juxtaposed with despicable enemies, ones that deem even the most disturbing of revenge plots appropriate. Often questioning whether their actions are justified, Talion acts as the angel to the wraith's devil on the game player's shoulders. But when the enemy orcs are slaughtering and enslaving innocent humans, however, it becomes easy to support their efforts to make haste of their destruction. We learn more about our hero’s through loading screens and memory flashbacks, and the depth and backstory given to these characters are a reason why this game functions so nicely.
 
-\[caption id="attachment\_1169" align="alignright" width="300"\][![(Image property of BAGOgames)](images/13614686985_7ec0379b39_o-300x168.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/13614686985_7ec0379b39_o.jpg) (Image property of BAGOgames)\[/caption\]
+\[caption id="attachment\_1169" align="alignright" width="300"\][![(Image property of BAGOgames)](/img/13614686985_7ec0379b39_o-300x168.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/13614686985_7ec0379b39_o.jpg) (Image property of BAGOgames)\[/caption\]
 
 The cast of side characters are a highlight, although the game foolishly disbands one group halfway through the campaign for a much weaker collection. (You are forced to leave one location for another and none of the initial sidekicks come along for the ride — well, except for Gollum.) Even still, whether it is Ratbag the comic relief that walks our character through the process of killing war chiefs, or Hirgon a ranger that exposes more of Talions past, the characters are deep and well voiced. By finding the game's collectibles you learn a great deal more about the side characters — another layer to _Shadow of Mordor's _terrific immersion.
 
@@ -26,7 +26,7 @@ The primary villains of this game are extremely disappointing. In theory, the Ha
 
 These villains are well crafted — I'd just prefer pumping them with Merlot and a steak dinner before I force them to meet their maker. If the game had better integrated them into the entire story they truly could have been something great.
 
-\[caption id="attachment\_1171" align="alignleft" width="300"\][![(Image property of BAGOgames)](images/15274059940_652e6ba0a0_o-300x168.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/15274059940_652e6ba0a0_o.jpg) (Image property of BAGOgames)\[/caption\]
+\[caption id="attachment\_1171" align="alignleft" width="300"\][![(Image property of BAGOgames)](/img/15274059940_652e6ba0a0_o-300x168.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/15274059940_652e6ba0a0_o.jpg) (Image property of BAGOgames)\[/caption\]
 
 Luckily these are the only real flaws found in _Shadow of Mordor_. Visually the game is stunning; from cut scenes to open world exploration, the game is gorgeous and both character models and Mordor are brought to life in beautiful detail. The games two maps are filled with fortresses and open plains to explore, and no matter where your character is you will be impressed by not only the graphics on display but the amount happening in the background.
 
@@ -34,7 +34,7 @@ As you play the game the world plays out around you, and this is one of the bigg
 
 Playing with this dynamic system kept me hooked for hours. Traveling the world you will gather Intel, learn the attributes and locations of target captains, and then hunt them down. Your primary objective is to eliminate or control the war chiefs, and this is down by controlling or eliminating their body guards (captains). Nothing is more satisfying then learning the weakness of a captain then exploiting for an instant kill, or capitalizing on their fear to send them screaming away from the fight. What is even better though is branding and controlling captains. After taking control of them, you can have them issue death threats, betray a war chief, infiltrate a war chief’s squad, or kill another captain. Playing with this system and watching the orc captain’s battle for position is addicting. Movement in the game is fluid and well done. Hunting down captains across the map is hardly a chore when travelling across the country side is so quick and easy to do; to go along with that, climbing the towers and rooftops of fortresses is tight and simple, making hunting down captains a fun process to play out on repeat.
 
-\[caption id="attachment\_1170" align="alignnone" width="620"\][![(Image property of BOGOgames)](images/15103432181_e7266b60a6_o-1024x576.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/15103432181_e7266b60a6_o.jpg) (Image property of BOGOgames)\[/caption\]
+\[caption id="attachment\_1170" align="alignnone" width="620"\][![(Image property of BOGOgames)](/img/15103432181_e7266b60a6_o-1024x576.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/15103432181_e7266b60a6_o.jpg) (Image property of BOGOgames)\[/caption\]
 
  
 

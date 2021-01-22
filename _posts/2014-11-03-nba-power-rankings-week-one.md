@@ -6,7 +6,7 @@ title: "NBA Power Rankings: Week One"
 date: "2014-11-03"
 ---
 
-\[caption id="attachment\_1617" align="alignnone" width="300"\][![Klay Thompson is, umm, really, real good. (Photo taken by Matthew Addie)](images/Klay-Thompson-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Klay-Thompson-e1415043828386.jpg) Klay Thompson is, umm, really, real good. (Photo taken by Matthew Addie)\[/caption\]
+\[caption id="attachment\_1617" align="alignnone" width="300"\][![Klay Thompson is, umm, really, real good. (Photo taken by Matthew Addie)](/img/Klay-Thompson-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/Klay-Thompson-e1415043828386.jpg) Klay Thompson is, umm, really, real good. (Photo taken by Matthew Addie)\[/caption\]
 
  
 

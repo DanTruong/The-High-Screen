@@ -14,7 +14,7 @@ Auburn wasn’t the only unbeaten team left out in 2004. The Utah Utes were also
 
 Smith’s coach that year was, of course, Urban Meyer.
 
-\[caption id="attachment\_2278" align="alignright" width="240"\][![Urban Mayer. (Photo provided by Adam Glanzman)](images/11144230674_d37d129804_o-240x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/11144230674_d37d129804_o-e1420938351296.jpg) Urban Meyer. ([Photo provided by Adam Glanzman](https://www.flickr.com/photos/adamglanzman/11144230674/))\[/caption\]
+\[caption id="attachment\_2278" align="alignright" width="240"\][![Urban Mayer. (Photo provided by Adam Glanzman)](/img/11144230674_d37d129804_o-240x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/11144230674_d37d129804_o-e1420938351296.jpg) Urban Meyer. ([Photo provided by Adam Glanzman](https://www.flickr.com/photos/adamglanzman/11144230674/))\[/caption\]
 
 Meyer’s journey to becoming the best head coach in college football started at Bowling Green in 2001. He was 17-6 in two years with the Falcons before accepting the Utah job. After finishing 22-2 at Utah, Meyer was hired by Jeremy Foley to replace Ron Zook at the University of Florida.
 

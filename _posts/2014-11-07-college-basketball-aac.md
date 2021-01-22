@@ -150,7 +150,7 @@ Nick King got minutes at the three and four and will need to try and man the sma
 
 Memphis had talent waiting in the wings last season and they will get to breakout now. The Tigers will get pushed by other more experienced teams, but they should be able to hold their spot in the AAC’s top three due to their tremendous athleticism on both ends of the floor.
 
-\[caption id="attachment\_1658" align="alignleft" width="225"\][![Shabazz Napier. (Photo taken by Matthew D. Britt)](images/6313768410_d90823efda_z-225x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/6313768410_d90823efda_z-e1415374089782.jpg) Shabazz Napier. (Photo taken by Matthew D. Britt)\[/caption\]
+\[caption id="attachment\_1658" align="alignleft" width="225"\][![Shabazz Napier. (Photo taken by Matthew D. Britt)](/img/6313768410_d90823efda_z-225x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/6313768410_d90823efda_z-e1415374089782.jpg) Shabazz Napier. (Photo taken by Matthew D. Britt)\[/caption\]
 
 **2\. Connecticut Huskies**
 

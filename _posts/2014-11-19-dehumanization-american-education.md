@@ -6,7 +6,7 @@ title: "Kids Are Not All Right: Removing Humanity from American Education "
 date: "2014-11-19"
 ---
 
-\[caption id="attachment\_1875" align="aligncenter" width="500"\][![mark-twain](images/mark-twain.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/mark-twain.jpg) (Photo provided by [Pixabay](http://pixabay.com/en/mark-twain-vintage-author-humorist-391120/))\[/caption\]
+\[caption id="attachment\_1875" align="aligncenter" width="500"\][![mark-twain](/img/mark-twain.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/mark-twain.jpg) (Photo provided by [Pixabay](http://pixabay.com/en/mark-twain-vintage-author-humorist-391120/))\[/caption\]
 
 Last week was my first week as a substitute teacher. I worked three days in a high school: Monday, Wednesday and Friday. The students in the last period class on Friday were reading Mark Twain’s _The Adventures of Huckleberry Finn_. The lesson plans for the period were simple, only to hand out a pair of packets. One of them was a reading packet including a brief biography of Mark Twain, as well as a background of the socio-historical context of America at the time of Twain’s writing.  The other packet was a two-page Huckleberry Finn character graph-diagram that was to be filled out after the students had finished reading the former packet.
 

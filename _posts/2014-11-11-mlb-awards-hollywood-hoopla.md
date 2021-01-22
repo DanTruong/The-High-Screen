@@ -26,7 +26,7 @@ Speaking of older rookies, the 26-year-old deGrom made his debut this season. On
 
 This is probably Felix Hernandez’s award to lose, but it shouldn’t be. [Kluber pitched lights out all season](http://www.fangraphs.com/blogs/corey-kluber-as-a-cy-young-candidate/) despite playing in front of a below-average defense. His ERA of 2.44 was third in the American League but his FIP (fielding independent pitching) of 2.35 was first by quite a bit. He blew away his career highs in innings (235.2) and strikeouts (269). For those that care about such things, he won 18 games and pitched as well as anyone not named Clayton Kershaw down the stretch. His team may have let him down, but the BBWAA shouldn’t.
 
-\[caption id="attachment\_1761" align="alignleft" width="300"\][![Clayton Kershaw. (Photo credit to Ron Reiring)](images/7489061110_11c60edaf8_o-300x231.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/7489061110_11c60edaf8_o-e1415719114244.jpg) Clayton Kershaw. (Photo credit to Ron Reiring)\[/caption\]
+\[caption id="attachment\_1761" align="alignleft" width="300"\][![Clayton Kershaw. (Photo credit to Ron Reiring)](/img/7489061110_11c60edaf8_o-300x231.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/7489061110_11c60edaf8_o-e1415719114244.jpg) Clayton Kershaw. (Photo credit to Ron Reiring)\[/caption\]
 
 **NL Cy Young:** Clayton Kershaw
 

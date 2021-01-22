@@ -14,7 +14,7 @@ If you haven't been tuning in, you've missed a lot, but there's still time to ca
 
 Even hardcore fans may have a hard time keeping up with 80+ teams who have a legitimate shot at the NCAA field, and while their play on the court certainly helps a team's NCAA fate, it can all fall down to a few puny numbers. Data like RPI, BPI, SOS, Top-50 Win's, Sub-100 losses — it's all insider hoopla that only nerds like me care about. But I've done the dirty work for you: just look at this beautiful excel sheet with all of those precious numbers — best win's, worst losses, it's all there.
 
-[![Mmmmmm, nothing like a Microsoft Excel doc.](images/Screen-Shot-2015-02-03-at-11.16.32-AM-e1422984759500.png)](http://www.thehighscreen.com/wp-content/uploads/2015/02/Screen-Shot-2015-02-03-at-11.16.32-AM-e1422984759500.png)
+[![Mmmmmm, nothing like a Microsoft Excel doc.](/img/Screen-Shot-2015-02-03-at-11.16.32-AM-e1422984759500.png)](http://www.thehighscreen.com/wp-content/uploads/2015/02/Screen-Shot-2015-02-03-at-11.16.32-AM-e1422984759500.png)
 
 Marvelous isn't it?
 
@@ -248,6 +248,6 @@ The Bulldogs play typical Butler style: smart, disciplined, hard-nosed defense. 
 
 Their opponents tonight is St. John's, another bubble team looking for a big win to boost its tournament chances. The Red Storm had a great non-confernece portion of their season, but have been swallowed up by the quality Big East thus far with only a 3-5 league record. They're still in today, but barely. Their two wins over Providence are saving them, but a win over a solid Butler team will make them feel much better.
 
-[![Ross Bentley 2](images/ross-2.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/ross-2.jpg)
+[![Ross Bentley 2](/img/ross-2.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/ross-2.jpg)
 
 Ross Bentley ([@ImRossBentley](https://twitter.com/ImRossBentley)) is a staff writer for The High Screen. He is a Graduate Sports Journalism student at Quinnipiac University and a graduate of SUNY Oswego.

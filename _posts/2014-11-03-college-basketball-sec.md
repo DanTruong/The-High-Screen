@@ -394,7 +394,7 @@ Freshman Devin Robinson will have to fight for minutes, but as one of the most r
 
 Florida has lost a lot, sure. But they have reloaded in a big way and have plenty of players waiting in the wings for an opportunity to lead Florida back to the Final Four for the second straight season.
 
-\[caption id="attachment\_1587" align="alignnone" width="300"\][![John Calipari. (U.S. Army National Guard photo by Staff Sgt. Scott Raymond)](images/John.Calipari-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/John.Calipari-e1414957609765.jpg) John Calipari. (U.S. Army National Guard photo by Staff Sgt. Scott Raymond)\[/caption\]
+\[caption id="attachment\_1587" align="alignnone" width="300"\][![John Calipari. (U.S. Army National Guard photo by Staff Sgt. Scott Raymond)](/img/John.Calipari-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/John.Calipari-e1414957609765.jpg) John Calipari. (U.S. Army National Guard photo by Staff Sgt. Scott Raymond)\[/caption\]
 
  
 

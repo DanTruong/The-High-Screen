@@ -22,7 +22,7 @@ Kansas City had to fight to game 161 this year just to get in the playoffs. Next
 
 If not, I’m sure it was just fun for Kansas City fans to root for a team that matters again.
 
-\[caption id="attachment\_927" align="alignnone" width="195"\][![Billy Beane went all in with the recent Jon Lester trade. Now Oakland has one game to prove it paid off. (copyright pl.wikipedia.org)](images/Billy_Beane_2006.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Billy_Beane_2006.jpg) Billy Beane went all in with the recent Jon Lester trade. Now Oakland has one game to prove it paid off.  
+\[caption id="attachment\_927" align="alignnone" width="195"\][![Billy Beane went all in with the recent Jon Lester trade. Now Oakland has one game to prove it paid off. (copyright pl.wikipedia.org)](/img/Billy_Beane_2006.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Billy_Beane_2006.jpg) Billy Beane went all in with the recent Jon Lester trade. Now Oakland has one game to prove it paid off.  
 (copyright pl.wikipedia.org)\[/caption\]
 
  

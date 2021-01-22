@@ -6,7 +6,7 @@ title: "Exploration of old, new and ugly of pop culture in 'Total Drama Series'"
 date: "2014-09-15"
 ---
 
-\[caption id="attachment\_634" align="alignnone" width="600"\][![Photo Credit: Turner ](images/TotalDrama.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/TotalDrama.jpg) Photo Credit: Turner\[/caption\]
+\[caption id="attachment\_634" align="alignnone" width="600"\][![Photo Credit: Turner ](/img/TotalDrama.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/TotalDrama.jpg) Photo Credit: Turner\[/caption\]
 
  
 
@@ -20,7 +20,7 @@ Who doesn’t want to be rich? And who doesn’t want to be famous? Those two qu
 
 What seemingly started out as a parody of _Survivor_ and _Fear Factor_ has expanded to a parody of, well, everything mainstream. Nothing is safe. _Pahkitew Island_ provided a dosage of overused cartoon archetypes. There is a Dexter look-a-like (Dexter, [the "evil" scientist](http://en.wikipedia.org/wiki/Dexter%27s_Laboratory), and not [the loveable serial killer](http://en.wikipedia.org/wiki/Dexter_%28TV_series%29)), as well as modern debates in the form of Honey Boo Boo parodies, internship culture and a _Hunger Games-_type artificial island.
 
-\[caption id="attachment\_635" align="alignleft" width="100"\][![Photo credit: Turner  Host Chris McLean](images/TotalDrama_Chris.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/TotalDrama_Chris.jpg) Photo credit: Turner  
+\[caption id="attachment\_635" align="alignleft" width="100"\][![Photo credit: Turner  Host Chris McLean](/img/TotalDrama_Chris.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/TotalDrama_Chris.jpg) Photo credit: Turner  
 Host Chris McLean\[/caption\]
 
 The final episode of _Pahkitew Island,_ “Lies, Cries and One Big Prize,”starts as the final contestants Sky and Shawn are awoken by a bullhorn to start their last challenge. We find Sky sporting bloodshot eyes and desperation in the house that they were forced to build as shelter in the first episode. Shawn falls from a tree after sleeping upside down in order to protect himself from his imagination nighttime zombie attack.  The host, Chris McLean (voiced by Christian Potenza and one of two characters that appear in every season), proceeds to tell them that he cannot wait to blast one of them from a canon (the elimination style of the season) and start his vacation. The entire show functions as a vacation for this sadist; it's perfect for the ironic tone of the show.

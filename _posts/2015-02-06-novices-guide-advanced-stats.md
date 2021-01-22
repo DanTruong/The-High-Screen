@@ -36,4 +36,4 @@ In coming posts I will give detailed explanations on how advanced stats are used
 
 If you’re interested in learning more about advanced statistical analysis, at least one piece will appear on this website every Friday afternoon for the next 10 weeks. I hope you enjoy.
 
-[![prrrrrrroooooom](images/prrrrrrroooooom-180x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/prrrrrrroooooom.jpg)
+[![prrrrrrroooooom](/img/prrrrrrroooooom-180x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/prrrrrrroooooom.jpg)

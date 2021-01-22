@@ -6,7 +6,7 @@ title: "I'm Sorry You Feel That Way: Bill Burr balances offensive topics "
 date: "2014-12-16"
 ---
 
-\[caption id="attachment\_2073" align="aligncenter" width="630"\][![(Photo provided by Flickr-Julian Jensen)](images/billburr.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/billburr.jpg) (Photo provided by [Flickr-Julian Jensen)](http://www.flickr.com/photos/lnight/4201130520/in/photolist-7peTJQ-7peTxU-7pb2Yp-f1igCS-8U9tCB-4CpRGX-f13YYH-ecSjA5-f1igS1-f1ih4N-f1iisU-4Ut38g-f1igps-f1ikFs-f1irG9-5mKahZ-f13Xxc-f13XQt-f13Y4n-f1ikS1-f1ijm3-f147c2-f1ikzW-f1ipwQ-8YTGh5-8YTUow-7pb2nn-f147ND-f1im5C-4CpR3X-4Cu8Lm-f13ZUk-4CpRvH-8YQDsK-8YTFb5-8YQC6n-8YQKxB-f146ee-f13Zn4-8YQBBg-2MVGv-f1ifjY-f144G6-f144rz-f1imhY-f1imVW-f142ZD-f1iiW5-f1ijHL-f1if99)\[/caption\]
+\[caption id="attachment\_2073" align="aligncenter" width="630"\][![(Photo provided by Flickr-Julian Jensen)](/img/billburr.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/billburr.jpg) (Photo provided by [Flickr-Julian Jensen)](http://www.flickr.com/photos/lnight/4201130520/in/photolist-7peTJQ-7peTxU-7pb2Yp-f1igCS-8U9tCB-4CpRGX-f13YYH-ecSjA5-f1igS1-f1ih4N-f1iisU-4Ut38g-f1igps-f1ikFs-f1irG9-5mKahZ-f13Xxc-f13XQt-f13Y4n-f1ikS1-f1ijm3-f147c2-f1ikzW-f1ipwQ-8YTGh5-8YTUow-7pb2nn-f147ND-f1im5C-4CpR3X-4Cu8Lm-f13ZUk-4CpRvH-8YQDsK-8YTFb5-8YQC6n-8YQKxB-f146ee-f13Zn4-8YQBBg-2MVGv-f1ifjY-f144G6-f144rz-f1imhY-f1imVW-f142ZD-f1iiW5-f1ijHL-f1if99)\[/caption\]
 
 I should start here: Bill Burr has been very funny for a deceptively long time (he’s been in the national spotlight for about a dozen years now). Long enough that his presence on stage predates cell phone cameras, internet activists, widely-read blogs, “outrage culture” and the subsequent effect of all that on live comedy acts.
 

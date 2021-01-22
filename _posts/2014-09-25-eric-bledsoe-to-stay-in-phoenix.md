@@ -6,7 +6,7 @@ author: "Joe Mags"
 date: "2014-09-25"
 ---
 
-\[caption id="attachment\_857" align="alignnone" width="300"\][![Eric Bledsoe is back in Phoenix, which means the Suns can expect he and teammate Goran Dragic to take over plenty of games this season. (Photo Courtesy ~ Joe Glorioso / @JoeGlo1 / CSNWashington / Hoop District)](images/Bledsoe.Suns_-300x180.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Bledsoe.Suns_.jpg) Eric Bledsoe is back in Phoenix, which means the Suns can expect he and teammate Goran Dragic to take over plenty of games this season.  
+\[caption id="attachment\_857" align="alignnone" width="300"\][![Eric Bledsoe is back in Phoenix, which means the Suns can expect he and teammate Goran Dragic to take over plenty of games this season. (Photo Courtesy ~ Joe Glorioso / @JoeGlo1 / CSNWashington / Hoop District)](/img/Bledsoe.Suns_-300x180.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Bledsoe.Suns_.jpg) Eric Bledsoe is back in Phoenix, which means the Suns can expect he and teammate Goran Dragic to take over plenty of games this season.  
 (Photo Courtesy ~ Joe Glorioso / @JoeGlo1 / CSNWashington / Hoop District)\[/caption\]
 
  

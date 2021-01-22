@@ -18,7 +18,7 @@ Gasol won the award in 2013 and his team subsequently advanced to the NBA's fina
 
 I want to take a look at the past year for Marc Gasol, a player who makes as large an impact on both ends of the floor as anyone in the NBA without averaging Top 10 figures in any major stat category. How much better does Gasol make his team by simply being on the floor?
 
-\[caption id="attachment\_1194" align="alignnone" width="300"\][![(Photo by Sean Davis)](images/Gasol-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Gasol.jpg) (Photo by Sean Davis)\[/caption\]
+\[caption id="attachment\_1194" align="alignnone" width="300"\][![(Photo by Sean Davis)](/img/Gasol-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Gasol.jpg) (Photo by Sean Davis)\[/caption\]
 
  
 
@@ -104,7 +104,7 @@ Considering the total embarrassment of Spain's loss to France — they were the 
 
 Gasol seemed to embody his country's struggles: He was 1 for 7 from the field, finished with more rebounds (4) than points (3) and he didn’t make a bucket in the second half. Team Spain was outscored 23-9 in the 4th quarter.
 
-\[caption id="attachment\_1195" align="alignnone" width="300"\][![(Photo by Sean Davis)](images/Gasol.2-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Gasol.2.jpg) (Photo by Sean Davis)\[/caption\]
+\[caption id="attachment\_1195" align="alignnone" width="300"\][![(Photo by Sean Davis)](/img/Gasol.2-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Gasol.2.jpg) (Photo by Sean Davis)\[/caption\]
 
  
 

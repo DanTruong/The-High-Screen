@@ -14,7 +14,7 @@ Since drafting him in 2007, the Vikings have been mere witnesses along for the
 
 Sure he's had help in the form of guys like Jared Allen, Matt Birk, Steve Hutchinson, Pat Williams, and Kevin Williams, but all other key fixtures have departed.
 
-![tmtest2](images/tmtest2.jpg)
+![tmtest2](/img/tmtest2.jpg)
 
 Insanity. Want perspective? It took Jamaal Charles and LeSean McCoy — the beta and gamma to Peterson's alpha — until their fifth and sixth years, respectively, in their careers to even come close to  AP's usage stats. Both the aforementioned stars recorded career highs in touches last year with Charles' 329 amounting to 32 percent of Kansas City's offense, while McCoy's 376 equated to 36 percent of Chip Kelly's high-paced attack. Cute, especially when you consider AP's yearly average is 32 percent and that McCoy's 36 percent would only be third on AP's career high list.
 

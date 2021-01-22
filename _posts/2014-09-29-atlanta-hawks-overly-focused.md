@@ -6,7 +6,7 @@ author: "Joe Mags"
 date: "2014-09-29"
 ---
 
-\[caption id="attachment\_915" align="alignnone" width="189"\][![All-Star Al Horford returning to the floor means a whole lot of good for Atlanta, a team that figures to be a whole lot better than many think. (Photo taken by Keith Allison)](images/Al.Horford.-189x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Al.Horford..jpg) All-Star Al Horford returning to the floor means a whole lot of good for Atlanta, a team that figures to be a whole lot better than many think.  
+\[caption id="attachment\_915" align="alignnone" width="189"\][![All-Star Al Horford returning to the floor means a whole lot of good for Atlanta, a team that figures to be a whole lot better than many think. (Photo taken by Keith Allison)](/img/Al.Horford.-189x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Al.Horford..jpg) All-Star Al Horford returning to the floor means a whole lot of good for Atlanta, a team that figures to be a whole lot better than many think.  
 (Photo taken by Keith Allison)\[/caption\]
 
  
@@ -33,7 +33,7 @@ And to his credit, Budenholzer tried. In fact, the starting lineup with Antic po
 
 Ironically, it was the makeshift version of Atlanta with Antic, a free-spirited jump shooter starting at center, that thrived against the emotionally damaged, plodding defense of Indiana. The Hawks nearly shot their way into the second-round before Paul George took his play into high-gear, dominating both ends of the court as a long-armed, two-way menace, something the Hawks personnel couldn’t account for. But Atlanta was lucky to make the post-season at all, and had no business winning that series without Horford — a shame on you to the New York Knicks and Pacers, respectively.
 
-\[caption id="attachment\_916" align="alignnone" width="300"\][![Kyle Korver is in a league of his own as an offensive threat. (Copyright thesportspost.com)](images/Korver-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Korver.jpg) Kyle Korver is in a league of his own as an offensive threat.  
+\[caption id="attachment\_916" align="alignnone" width="300"\][![Kyle Korver is in a league of his own as an offensive threat. (Copyright thesportspost.com)](/img/Korver-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Korver.jpg) Kyle Korver is in a league of his own as an offensive threat.  
 (Copyright thesportspost.com)\[/caption\]
 
  
@@ -42,7 +42,7 @@ There’s a lot to be excited about for Atlanta. For starters, at the age of 33,
 
 The Hawks scored 108.7 points per 100 possessions when Korver was on the floor, which would have made them the fourth-best offense in basketball. But Korver’s impact was also felt on the defensive end, where he is sorely undervalued. He is a great scheme defender, rarely missing an assignment, and the Hawks let up a disgusting 110.3 points per 100 possessions whenever he hit the bench, which would have made them worst in basketball. According to [82games.com](http://82games.com), Korver made the Hawks 8.5 net points better.
 
-\[caption id="attachment\_917" align="alignnone" width="196"\][![Paul Millsap represented Atlanta in the 2014 All-Star game, his first career appearance. (Copyright commons.wikimedia.org)](images/Paul_Millsap_Atlanta_Hawks_cropped-196x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Paul_Millsap_Atlanta_Hawks_cropped.jpg) Paul Millsap represented Atlanta in the 2014 All-Star game, his first career appearance.  
+\[caption id="attachment\_917" align="alignnone" width="196"\][![Paul Millsap represented Atlanta in the 2014 All-Star game, his first career appearance. (Copyright commons.wikimedia.org)](/img/Paul_Millsap_Atlanta_Hawks_cropped-196x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/Paul_Millsap_Atlanta_Hawks_cropped.jpg) Paul Millsap represented Atlanta in the 2014 All-Star game, his first career appearance.  
 (Copyright commons.wikimedia.org)\[/caption\]
 
  

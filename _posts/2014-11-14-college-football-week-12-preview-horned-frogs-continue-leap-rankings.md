@@ -46,7 +46,7 @@ Just Missed the Cut: Michigan State (7-2), Arizona (7-2), Notre Dame (7-2), Clem
 
 2\. Oregon (9-1) If I had to pick one team that I thought was a lock for the playoffs at this point, it would be the Ducks. Oregon should easily defeat Colorado and Oregon State, and the only game standing between them and the playoff would be the Pac-12 title game against UCLA, Arizona State or Arizona. Marcus Mariotta is the Heisman frontrunner right now (sorry, Dak), and Oregon is playing its best football of the season.
 
-\[caption id="attachment\_1811" align="aligncenter" width="500" class=" "\][![Texas Christian University. (Photo credit to ..Russ..)](images/TCUFootball-e1416006438316.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/TCUFootball-e1416006438316.jpg) Texas Christian University. (Photo credit to ..Russ..)\[/caption\]
+\[caption id="attachment\_1811" align="aligncenter" width="500" class=" "\][![Texas Christian University. (Photo credit to ..Russ..)](/img/TCUFootball-e1416006438316.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/TCUFootball-e1416006438316.jpg) Texas Christian University. (Photo credit to ..Russ..)\[/caption\]
 
 1\. TCU (8-1) On a neutral field right now, I’d take TCU over anyone in the country. The only problem with that is even if they win out, there’s a chance they miss the playoffs altogether. If TCU misses the playoffs at 11-1, and Ohio State misses at 12-1 (both possible), we might see an 8-team playoff sooner than expected. But after such a fun season, something [Joe Mags and I discussed at length yesterday](http://www.youtube.com/watch?v=-ohR83bo5q4), it would have to be a bit discouraging if the nation's hottest team missed the postseason.
 

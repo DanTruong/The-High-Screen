@@ -22,7 +22,7 @@ _The Jinx_ promises insight into the strange and sometimes deadly events surroun
 
 Years later, Robert was acquitted on the murder of his neighbor, Morris Black in Galveston, Texas. He later admitted to killing and dismembering Black in 2001. Robert has served time in jail for lesser charges.
 
-\[caption id="attachment\_2501" align="aligncenter" width="630"\][![RobertDurst_TheJinx](images/RobertDurst_TheJinx.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/RobertDurst_TheJinx.jpg) Robert Durst speaks for the first time in HBO's The Jinx: The Life and Deaths of Robert Durst (Photo provided by HBO via Twitter)\[/caption\]
+\[caption id="attachment\_2501" align="aligncenter" width="630"\][![RobertDurst_TheJinx](/img/RobertDurst_TheJinx.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/02/RobertDurst_TheJinx.jpg) Robert Durst speaks for the first time in HBO's The Jinx: The Life and Deaths of Robert Durst (Photo provided by HBO via Twitter)\[/caption\]
 
 Jarecki explained that the Durst family of the Durst Organization (New York City real estate giant) has been uncooperative towards the production and premier of the documentary.
 

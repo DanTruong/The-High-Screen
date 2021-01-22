@@ -6,7 +6,7 @@ title: "The future of black representation in Black-ish, How To Get Away With Mu
 date: "2014-10-12"
 ---
 
-\[caption id="attachment\_1154" align="aligncenter" width="500"\][![Portrait of Happy Family In Park](images/blackfamily.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/blackfamily.jpg) (BigStock Photo)\[/caption\]
+\[caption id="attachment\_1154" align="aligncenter" width="500"\][![Portrait of Happy Family In Park](/img/blackfamily.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/blackfamily.jpg) (BigStock Photo)\[/caption\]
 
 The 1967 film _Guess Who’s Coming to Dinner_ can be defined by its slow pace and carefully written dialogue. From the affectionate speech given by Spencer Tracy’s character to Beah Richards’ character proclaiming that old men forget the passions of early love, a lot of wise words are said during the final scenes. But today nothing rings more problematic than the words uttered by Sidney Poitier’s character: “_You think of yourself as a colored man, I think of myself as a man_.”
 

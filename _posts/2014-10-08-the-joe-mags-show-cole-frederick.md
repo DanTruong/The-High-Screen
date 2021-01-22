@@ -6,7 +6,7 @@ title: "The Joe Mags Show — Cole Frederick, Oct. 8, 2014"
 date: "2014-10-08"
 ---
 
-\[caption id="attachment\_1059" align="alignnone" width="300"\][![Dak Prescott might be the next Heisman winner. But first, he and Mississippi State will have to get past the Auburn Tigers. (Photo eligible for reuse from Yahoo Sports)](images/Dak.Prescott-300x232.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Dak.Prescott.jpg) Dak Prescott might be the next Heisman winner. But first, he and Mississippi State will have to get past the Auburn Tigers.  
+\[caption id="attachment\_1059" align="alignnone" width="300"\][![Dak Prescott might be the next Heisman winner. But first, he and Mississippi State will have to get past the Auburn Tigers. (Photo eligible for reuse from Yahoo Sports)](/img/Dak.Prescott-300x232.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Dak.Prescott.jpg) Dak Prescott might be the next Heisman winner. But first, he and Mississippi State will have to get past the Auburn Tigers.  
 (Photo eligible for reuse from Yahoo Sports)\[/caption\]
 
  

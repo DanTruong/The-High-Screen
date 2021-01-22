@@ -64,7 +64,7 @@ It has been a tough start to the season for household name superstars. But nobod
 
 **3\. Heat (5-2, Down 1) **The past two years have not been easy for Luol Deng. He was traded from Chicago to Cleveland after a [heartwarming display of loyalty](http://www.sbnation.com/nba/2014/1/7/5283734/luol-deng-trade-chicago-bulls-andrew-bynum) for nearly a decade. Deng knew he would be moving on from Cleveland the following offseason. He did just that and pretty much traded places with LeBron James. Deng remains one of the ultimate two-way forwards in our league.
 
-\[caption id="attachment\_1738" align="aligncenter" width="188" class=" "\][![James Harden. (Photo from Wikipedia, eligible for re-use, CC)](images/James_Harden_Rockets_cropped-188x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/James_Harden_Rockets_cropped-e1415654456893.jpg) James Harden. (Photo from Wikipedia, eligible for re-use, CC)\[/caption\]
+\[caption id="attachment\_1738" align="aligncenter" width="188" class=" "\][![James Harden. (Photo from Wikipedia, eligible for re-use, CC)](/img/James_Harden_Rockets_cropped-188x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/11/James_Harden_Rockets_cropped-e1415654456893.jpg) James Harden. (Photo from Wikipedia, eligible for re-use, CC)\[/caption\]
 
 **2\. Rockets (6-1, Up 7) **James Harden is moving the ball better this year, although he still halts ball movement in the big picture. Harden is averaging 25 points and seven assists, but a sky-high 4.4 turnovers. I will track the following statistic on a weekly basis: Houston/Dwight Howard ranks 28th in points in paint allowed giving up over 45 a game.
 

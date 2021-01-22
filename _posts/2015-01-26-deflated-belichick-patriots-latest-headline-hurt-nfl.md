@@ -19,7 +19,7 @@ Well Belichick took his deadpan approach to the next level, so far as to defer t
 
 Understandably, Brady didn't handle this all that well, but Tom took it to another level when he tried to calm the national storm by contrasting Deflategate and an [international terrorist organization](http://www.msnbc.com/msnbc/tom-brady-deflate-gate-isnt-isis).
 
-\[caption id="attachment\_1117" align="alignright" width="300"\][![Photo: Keith Allison](images/Tom_Brady_8-28-09_Patriots-vs-Redskins-300x163.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Tom_Brady_8-28-09_Patriots-vs-Redskins-e1422284029481.jpg) Photo: Keith Allison\[/caption\]
+\[caption id="attachment\_1117" align="alignright" width="300"\][![Photo: Keith Allison](/img/Tom_Brady_8-28-09_Patriots-vs-Redskins-300x163.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Tom_Brady_8-28-09_Patriots-vs-Redskins-e1422284029481.jpg) Photo: Keith Allison\[/caption\]
 
 We get that Tom. No one is putting this latest infraction anywhere near that level. The heated frenzy that has ensued is one of disbelief; how can the Patriots be caught twice with their hand in the cookie jar?
 

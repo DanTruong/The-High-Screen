@@ -6,7 +6,7 @@ title: "Questions of the Unknown"
 date: "2014-09-29"
 ---
 
-\[caption id="attachment\_906" align="alignnone" width="200"\][![9/11 connects Americans in a way that is often indescribable. As we learn about Western traitors assisting I.S.I.S., it begs the question how could an American turn its back on the country? (Copyright 2005 The Sculpture Foundation) ](images/9.11-200x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/9.11.jpg) 9/11 connects Americans in a way that is often indescribable. As we learn about Western traitors assisting I.S.I.S., it begs the question how could an American turn its back on the country?  
+\[caption id="attachment\_906" align="alignnone" width="200"\][![9/11 connects Americans in a way that is often indescribable. As we learn about Western traitors assisting I.S.I.S., it begs the question how could an American turn its back on the country? (Copyright 2005 The Sculpture Foundation) ](/img/9.11-200x300.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/09/9.11.jpg) 9/11 connects Americans in a way that is often indescribable. As we learn about Western traitors assisting I.S.I.S., it begs the question how could an American turn its back on the country?  
 (Copyright 2005 The Sculpture Foundation)\[/caption\]
 
  

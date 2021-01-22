@@ -37,7 +37,7 @@ date: "2014-10-27"
 29. Buffalo (30) – One goal in four games and they aren’t even last overall.
 30. Carolina (28) – Every team in the NHL has multiple wins, except for the winless ‘Canes.
 
-\[caption id="attachment\_1483" align="alignnone" width="300"\][![San Jose Sharks. (Photo taken by Ed Senter) ](images/Sharks-300x163.png)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Sharks-e1414436993437.png) San Jose Sharks. (Photo taken by Ed Senter)\[/caption\]
+\[caption id="attachment\_1483" align="alignnone" width="300"\][![San Jose Sharks. (Photo taken by Ed Senter) ](/img/Sharks-300x163.png)](http://www.thehighscreen.com/wp-content/uploads/2014/10/Sharks-e1414436993437.png) San Jose Sharks. (Photo taken by Ed Senter)\[/caption\]
 
  
 

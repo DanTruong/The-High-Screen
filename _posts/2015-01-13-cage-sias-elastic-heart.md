@@ -20,7 +20,7 @@ When I first saw the video, I thought to myself, “Why are Shia LaBeouf and Mad
 
 However, Shia and Maddie are not fighting each other. Instead, they are engaged in what appears to be a supremely dramatic dance off. But, there is something about the way they both dance that lends itself to being called a fight.
 
-\[caption id="attachment\_2297" align="alignright" width="400"\][![(Photo by Dave J Hogan/Getty Images for BFI)](images/ShiaLabeouf_Fury_.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/ShiaLabeouf_Fury_.jpg) (Photo by Dave J Hogan/Getty Images for BFI)\[/caption\]
+\[caption id="attachment\_2297" align="alignright" width="400"\][![(Photo by Dave J Hogan/Getty Images for BFI)](/img/ShiaLabeouf_Fury_.jpg)](http://www.thehighscreen.com/wp-content/uploads/2015/01/ShiaLabeouf_Fury_.jpg) (Photo by Dave J Hogan/Getty Images for BFI)\[/caption\]
 
 This is not as true for Shia as it is for Maddie. Shia seems to try to communicate with Maddie. Maddie, however, defends herself from what Shia might share with her about his experience of the world. I believe that this strikes at the heart of what Sia’s video is expressing. Maddie does not want to become what Shia has become. She believes that avoiding him will protect her from his fate. She is, after all, lithe enough to still weave in and out of her cage. Her youth prevents her from seeing what she is up against. 
 

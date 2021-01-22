@@ -14,7 +14,7 @@ I’ve decided to play the role of athletic director for each of these schools. 
 
 In order to find out whom each school should consider and ultimately hire, the first step is evaluating how they got to this point.
 
-\[caption id="attachment\_2011" align="alignleft" width="300"\][![(Photo taken by  kimandmike, CC)](images/6335993584_9be8763228_z-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/6335993584_9be8763228_z-e1417726059146.jpg) (Photo taken by kimandmike, CC)\[/caption\]
+\[caption id="attachment\_2011" align="alignleft" width="300"\][![(Photo taken by  kimandmike, CC)](/img/6335993584_9be8763228_z-300x199.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/6335993584_9be8763228_z-e1417726059146.jpg) (Photo taken by kimandmike, CC)\[/caption\]
 
 **Florida**
 
@@ -42,7 +42,7 @@ For each school, I’ll list the following candidates: The Longshot – The cand
 
 (Again, this exercise is hypothetical for Florida and Nebraska. Just remember that I was right when these coaches are assistants somewhere else in 2018.)
 
-\[caption id="attachment\_2008" align="alignleft" width="300"\][![(Photo taken by  Bryan McDonald, CC) ](images/2999976059_0c814c4f79_z-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/2999976059_0c814c4f79_z-e1417725676876.jpg) (Photo taken by Bryan McDonald, CC)\[/caption\]
+\[caption id="attachment\_2008" align="alignleft" width="300"\][![(Photo taken by  Bryan McDonald, CC) ](/img/2999976059_0c814c4f79_z-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/2999976059_0c814c4f79_z-e1417725676876.jpg) (Photo taken by Bryan McDonald, CC)\[/caption\]
 
 **Florida**
 
@@ -78,7 +78,7 @@ Seriously though, Gundy checks all the boxes for Florida. He’s a young, offens
 
 Rumors have circulated that Gundy, an Oklahoma State alum, is [tired of dealing with T. Boone Pickens in Stillwater](http://grantland.com/the-triangle/mike-gundy-oklahoma-state-football/). Now would be the perfect time for him to leave. Gundy nearly took Oklahoma State to the national title game in 2011, and he’s been even more successful in Stillwater than his predecessor Les Miles. Out of all the realistic options, Gundy would be the best hire for Florida, and he would take the Gators back to being the favorites in the SEC East.
 
-\[caption id="attachment\_2009" align="alignleft" width="300"\][![(Photo taken by allison, CC) ](images/1313848795_429473dd80_z-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/1313848795_429473dd80_z-e1417725772823.jpg) (Photo taken by allison, CC)\[/caption\]
+\[caption id="attachment\_2009" align="alignleft" width="300"\][![(Photo taken by allison, CC) ](/img/1313848795_429473dd80_z-300x225.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/1313848795_429473dd80_z-e1417725772823.jpg) (Photo taken by allison, CC)\[/caption\]
 
 **Michigan**
 
@@ -102,7 +102,7 @@ If Michigan can’t get Jim Harbaugh, why not go after his protégé? Shaw has h
 
 It might be hard to convince Shaw to leave his alma mater, but I think he has taken Stanford as far as they can go in the Pac-12. His next step might be the NFL, but he would be a home run hire for Michigan.
 
-\[caption id="attachment\_2010" align="alignleft" width="300"\][![(Photo taken by  wht_wolf9653, CC) ](images/3696165417_6aa825c433_z-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/3696165417_6aa825c433_z-e1417725911658.jpg) (Photo taken by wht\_wolf9653, CC)\[/caption\]
+\[caption id="attachment\_2010" align="alignleft" width="300"\][![(Photo taken by  wht_wolf9653, CC) ](/img/3696165417_6aa825c433_z-300x200.jpg)](http://www.thehighscreen.com/wp-content/uploads/2014/12/3696165417_6aa825c433_z-e1417725911658.jpg) (Photo taken by wht\_wolf9653, CC)\[/caption\]
 
 **Nebraska**
 
