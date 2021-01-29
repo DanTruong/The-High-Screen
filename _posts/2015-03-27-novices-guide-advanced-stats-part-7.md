@@ -1,12 +1,10 @@
 ---
 layout: post
-categories: the-buckets-blog
+categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part VII: The Calgary Flames"
 date: "2015-03-27"
 ---
-
-_(The High Screen is running a novice’s guide to advanced statistical analysis in sports in the form of a 10-part series[. Part I](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/) was an introduction to the series. [Part II](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-ii-baseball/) covered Baseball. [Part III](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-three-basketball/) covered basketball. [Part IV](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-iv-hockey/) covered hockey. Part V was a [Q+A with Matthew Coller](http://www.thehighscreen.com/2015/03/novices-guide-advanced-stats-part-v-qa-matthew-coller/). Part VI covered [American Football ](http://www.thehighscreen.com/2015/03/the-novices-guide-to-advanced-stats-part-vi-american-football/))_
 
 Three years ago, the Calgary Flames would have been the most hotly-debated team on the NHL playoff bubble by a wide margin. This year, they’re still among the leaders in argument subjects, but the debates are fewer and they’re less fierce.
 

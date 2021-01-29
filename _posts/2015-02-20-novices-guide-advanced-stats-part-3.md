@@ -1,12 +1,10 @@
 ---
 layout: post
-categories: the-buckets-blog
+categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part III: Basketball"
 date: "2015-02-20"
 ---
-
-_(The High Screen is running a novice’s guide to advanced statistical analysis in sports in the form of a 10-part series. [Part I](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/) was an introduction to the series. You can find it [here](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/). Part II covered Baseball. It is [here.](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-ii-baseball/) Part III will cover how advanced stats are used in basketball.)_
 
 If you are a basketball fan, you might have come across this recently.
 

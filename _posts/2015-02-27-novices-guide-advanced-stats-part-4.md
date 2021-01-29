@@ -1,12 +1,10 @@
 ---
 layout: post
-categories: the-buckets-blog
+categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part IV: Hockey"
 date: "2015-02-27"
 ---
-
-_(The High Screen is running a novice’s guide to advanced statistical analysis in sports in the form of a 10-part series. [Part I](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/) was an introduction to the series. [Part II](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-ii-baseball/) covered Baseball. [Part III](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-three-basketball/) covered basketball. Part IV will cover how advanced stats are used in hockey.)_
 
 If you’re a fan of hockey, you may have heard the NHL [recently added](http://sports.yahoo.com/blogs/nhl-puck-daddy/inside-nhl-com-s-revolutionary-new-features--stats-031047083.html) an “enhanced” stats section to its website. The new page features some of the more basic advanced stats that have been developed over the past decade.
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "Rap it Up — 2.16.15"
 date: "2015-02-16"

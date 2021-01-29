@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "The Joe Mags Show — Asif Kuma, Dec. 5, 2014"
 date: "2014-12-05"

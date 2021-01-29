@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "The Joe Mags Show — Tim Mullhaupt, Sept. 26, 2014"
 date: "2014-09-26"

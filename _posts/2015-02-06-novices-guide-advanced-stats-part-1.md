@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: the-buckets-blog
+categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats: Part I"
 date: "2015-02-06"

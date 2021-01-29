@@ -1,12 +1,10 @@
 ---
 layout: post
-categories: the-buckets-blog
+categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part V: A Q+A with Matthew Coller"
 date: "2015-03-06"
 ---
-
-_(The High Screen is running a novice’s guide to advanced statistical analysis in sports in the form of a 10-part series[. Part I](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/) was an introduction to the series. [Part II](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-ii-baseball/) covered Baseball. [Part III](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-three-basketball/) covered basketball. [Part IV](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-iv-hockey/) covered hockey.)_
 
 For the fifth installment of this series, I decided to interview a media member who has extensive knowledge of analytics. Matthew Coller is the Managing Editor of [Hockey Prospectus](http://www.hockeyprospectus.com/) and a producer for The Howard Simon show on WGR 550, a Buffalo-based sports radio station. He uses advanced statistics in his work at Hockey Prospectus as well as when he covers the Buffalo Sabres and the Rochester Americans of the American Hockey League.
 

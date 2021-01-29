@@ -1,12 +1,10 @@
 ---
 layout: post
-categories: the-buckets-blog
+categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part VI: American Football"
 date: "2015-03-20"
 ---
-
-_(The High Screen is running a novice’s guide to advanced statistical analysis in sports in the form of a 10-part series[. Part I](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/) was an introduction to the series. [Part II](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-ii-baseball/) covered Baseball. [Part III](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-three-basketball/) covered basketball. [Part IV](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-iv-hockey/) covered hockey. Part V was a [Q+A with Matthew Coller](http://www.thehighscreen.com/2015/03/novices-guide-advanced-stats-part-v-qa-matthew-coller/))_
 
 Football is America’s most popular sport and it isn’t particularly close at the moment. This is partly because of routine – American’s spend their Sunday’s and Monday nights cheering on their favorite teams and rolling their eyes at less-than-insightful color commentators (looking at you, Phil Simms).
 

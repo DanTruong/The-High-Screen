@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "The Joe Mags Show — Cole Frederick, Sept. 25, 2014"
 date: "2014-09-25"

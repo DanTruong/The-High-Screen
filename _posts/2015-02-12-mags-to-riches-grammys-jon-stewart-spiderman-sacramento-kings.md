@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 title: "Mags to Riches — 2.13.15"
 author: "Joe Mags"
 date: "2015-02-12"

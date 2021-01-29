@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "Rap it Up — Jan. 29, 2015 (Part Two)"
 date: "2015-01-30"

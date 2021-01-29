@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "The Joe Mags Show — Conrad Richer, Feb. 6, 2015"
 date: "2015-02-07"

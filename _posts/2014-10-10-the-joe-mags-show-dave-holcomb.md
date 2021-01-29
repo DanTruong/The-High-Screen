@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "The Joe Mags Show — Dave Holcomb, Oct. 10, 2014"
 date: "2014-10-10"

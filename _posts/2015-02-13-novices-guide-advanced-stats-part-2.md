@@ -1,12 +1,10 @@
 ---
 layout: post
-categories: the-buckets-blog
+categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part II: Baseball"
 date: "2015-02-13"
 ---
-
-(_The High Screen is running a novice’s guide to advanced statistical analysis in sports in the form of a 10-part series. Part I was an introduction to the series. You can find it [here](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/). Part II will cover the way advanced stats are used in baseball)._
 
 When discussing advanced statistical analysis in sports, baseball is a great place to start. Because of the nature of the game, it has adapted to the advanced stats revolution more quickly than the other major North American sports.
 

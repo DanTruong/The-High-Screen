@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "The Joe Mags Show — Feb. 10, 2015, Taylor Pangman"
 date: "2015-02-10"

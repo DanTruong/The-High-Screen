@@ -1,12 +1,10 @@
 ---
 layout: post
-categories: the-buckets-blog
+categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part VIII: A Q+A with Rob Vollman"
 date: "2015-04-09"
 ---
-
-_(The High Screen is running a novice’s guide to advanced statistical analysis in sports in the form of a 10-part series[. Part I](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats/) was an introduction to the series. [Part II](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-ii-baseball/) covered Baseball. [Part III](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-three-basketball/) covered basketball. [Part IV](http://www.thehighscreen.com/2015/02/novices-guide-advanced-stats-part-iv-hockey/) covered hockey. Part V was a [Q+A with Matthew Coller](http://www.thehighscreen.com/2015/03/novices-guide-advanced-stats-part-v-qa-matthew-coller/). Part VI covered [American Football ](http://www.thehighscreen.com/2015/03/the-novices-guide-to-advanced-stats-part-vi-american-football/). Part VII covered the [Calgary Flames](http://www.thehighscreen.com/2015/03/the-novices-guide-to-advanced-stats-part-vii-the-calgary-flames/))_
 
 Long before hockey teams hired analytics gurus and broadcasts cited Corsi and Fenwick, Rob Vollman studied hockey from a statistical perspective. He was one of the pioneers of using advanced stats to better understand hockey, and he’s playing a major role in bringing that knowledge to the mainstream.
 

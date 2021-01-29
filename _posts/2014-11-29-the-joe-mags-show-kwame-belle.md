@@ -1,6 +1,6 @@
 ---
 layout: post
-categories: multimedia
+categories: features
 author: "Joe Mags"
 title: "The Joe Mags Show — Kwame Belle, Nov. 29, 2014"
 date: "2014-11-29"
