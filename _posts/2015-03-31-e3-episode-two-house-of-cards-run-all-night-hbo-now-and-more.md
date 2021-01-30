@@ -3,6 +3,7 @@ layout: post
 categories: show-dont-tell
 author: "Elliott Altland"
 title: "E3 Episode Two: House of Cards, Run All Night, HBO Now and more"
+background: "img/2999976059_0c814c4f79_z-300x225.jpg"
 date: "2015-03-31"
 ---
 
