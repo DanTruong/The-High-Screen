@@ -1,7 +1,7 @@
 title: The High Screen
 email: thehighscreen@outlook.com
 description: >- # this means to ignore newlines until "baseurl:"
-  The High Screen is the hub of sports, pop culture and social trends. Columns, features, think pieces and essays and podcasts on all of your favorite subjects. We're covering what you're already talking about! 
+  The hub of sports, pop culture and social trends. Columns, features, think pieces and essays and podcasts on all of your favorite subjects. We're covering what you're already talking about! 
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: thehighscreen

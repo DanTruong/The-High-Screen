@@ -3,7 +3,7 @@ layout: post
 categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part VII: The Calgary Flames"
-background: "img/3696165417_6aa825c433_z-300x200.jpg"
+background: "img/null1.png"
 date: "2015-03-27"
 ---
 

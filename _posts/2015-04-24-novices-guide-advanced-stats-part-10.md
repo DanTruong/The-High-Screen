@@ -3,7 +3,7 @@ layout: post
 categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part X: The Final Chapter"
-background: "img/525995965_7d411e7a2c_z.jpg"
+background: "img/null2.png"
 date: "2015-04-24"
 ---
 

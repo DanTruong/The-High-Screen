@@ -3,7 +3,7 @@ layout: post
 categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part VIII: A Q+A with Rob Vollman"
-background: "img/1593725295_4bfc81c894_z.jpg"
+background: "img/null4.png"
 date: "2015-04-09"
 ---
 

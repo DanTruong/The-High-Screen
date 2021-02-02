@@ -3,7 +3,7 @@ layout: post
 categories: features
 author: "Taylor Nigrelli"
 title: "The Novice's Guide to Advanced Stats Part IX: Addressing Some Common Concerns"
-background: "img/1313848795_429473dd80_z-300x225.jpg"
+background: "img/null3.png"
 date: "2015-04-20"
 ---
 

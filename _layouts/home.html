@@ -1,16 +1,33 @@
 ---
 layout: default
 ---
+
+<header class="masthead" style="background-image: url('img/bg.jpg')">
+    <div class="overlay"></div>
+    <div class="container">
+      <div class="row">
+        <div class="col-lg-8 col-md-10 mx-auto">
+          <div class="site-heading">
+            <h1>{{ site.title }}</h1>
+            <span class="subheading">{{ site.description }}</span>
+          </div>
+        </div>
+      </div>
+    </div>
+  </header>
   
   <!--Carousel Component-->
+  <!--
   <div id="carouselExampleControls" class="carousel slide" data-ride="carousel">
 		<div class="carousel-inner">
 		
 			<div class="carousel-item active">
-				<img class="d-block w-100" src="img/about-bg.jpg" alt="First slide">
+				<img class="d-block w-100" src="img/null3.png" alt="First slide">
 				<div class="carousel-caption d-none d-md-block">
+					<a href="{{ post.url | prepend: site.baseurl | replace: '//', '/' }}">
 					<h5>Test Post #1</h5>
 					<p>I am a subheading</p>
+					</a>
 				</div>
 			</div>
 		
@@ -40,6 +57,7 @@ layout: default
 		<span class="sr-only">Next</span>
 		</a>
 	</div>
+	-->
  
 
   <div class="container">
