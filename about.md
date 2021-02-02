@@ -16,6 +16,10 @@ Joe Mags (@[thatjoemags](https://twitter.com/thatjoemags)) is the Editor-in-chie
 
 Moraima Capellán Pichardo ([@Moraima\_CP](https://twitter.com/Moraima_CP)) is the deputy editor of The High Screen. Moraima is an aspiring nomad and strong advocate against microwave food.
 
+![Dan](/img/THS.png)
+
+Dan Truong ([GitHub: @DanTruong](https://github.com/dantruong)) is the web director of The High Screen. Dan enjoys working on computers and trying to get Doom to run on almost anything in the world.
+
 ![Kwame](/img/THS.png)
 
 Kwame Belle ([@Mr\_Belle](https://twitter.com/Mr_Belle)) is a staff writer for The High Screen.
